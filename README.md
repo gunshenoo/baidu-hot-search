@@ -14,13 +14,14 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2020-12-09 14:02:03
+最后更新时间 2020-12-09 15:20:40
 
 1. [31省新增15例确诊 本土4例在四川](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F615%C0%FD%C8%B7%D5%EF%20%B1%BE%CD%C14%C0%FD%D4%DA%CB%C4%B4%A8) 4873732
 1. [拜登或提名布蒂吉格任美驻华大使](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BB%F2%CC%E1%C3%FB%B2%BC%B5%D9%BC%AA%B8%F1%C8%CE%C3%C0%D7%A4%BB%AA%B4%F3%CA%B9) 4703151
 1. [央视评成都确诊女孩信息遭泄露](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%CA%D3%C6%C0%B3%C9%B6%BC%C8%B7%D5%EF%C5%AE%BA%A2%D0%C5%CF%A2%D4%E2%D0%B9%C2%B6) 4688250
 1. [遭网暴成都女孩:我也是受害者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%E2%CD%F8%B1%A9%B3%C9%B6%BC%C5%AE%BA%A2%3A%CE%D2%D2%B2%CA%C7%CA%DC%BA%A6%D5%DF) 4538541
 1. [8848.86米！珠峰新高程公布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=8848.86%C3%D7%A3%A1%D6%E9%B7%E5%D0%C2%B8%DF%B3%CC%B9%AB%B2%BC) 4524161
+1. [男子泄露成都确诊者信息被行政处罚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%D0%B9%C2%B6%B3%C9%B6%BC%C8%B7%D5%EF%D5%DF%D0%C5%CF%A2%B1%BB%D0%D0%D5%FE%B4%A6%B7%A3) 4465974
 1. [孟晚舟案证人:应美要求没收手机](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%CF%CD%ED%D6%DB%B0%B8%D6%A4%C8%CB%3A%D3%A6%C3%C0%D2%AA%C7%F3%C3%BB%CA%D5%CA%D6%BB%FA) 4379692
 1. [男子散布成都封城谣言被拘5日](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C9%A2%B2%BC%B3%C9%B6%BC%B7%E2%B3%C7%D2%A5%D1%D4%B1%BB%BE%D05%C8%D5) 4365815
 1. [坠楼女婴或有后遗症 其父重男轻女](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%B9%C2%A5%C5%AE%D3%A4%BB%F2%D3%D0%BA%F3%D2%C5%D6%A2%20%C6%E4%B8%B8%D6%D8%C4%D0%C7%E1%C5%AE) 4226403
@@ -37,6 +38,7 @@
 1. [钟南山到成都抗疫系谣言](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D3%C4%CF%C9%BD%B5%BD%B3%C9%B6%BC%BF%B9%D2%DF%CF%B5%D2%A5%D1%D4) 3178260
 1. [男子头顶茶杯骑车纠正驼背](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%CD%B7%B6%A5%B2%E8%B1%AD%C6%EF%B3%B5%BE%C0%D5%FD%CD%D5%B1%B3) 3067021
 1. [兰州布病感染者将起诉涉事企业](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%BC%D6%DD%B2%BC%B2%A1%B8%D0%C8%BE%D5%DF%BD%AB%C6%F0%CB%DF%C9%E6%CA%C2%C6%F3%D2%B5) 3057303
+1. [应急管理部部长王玉普逝世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A6%BC%B1%B9%DC%C0%ED%B2%BF%B2%BF%B3%A4%CD%F5%D3%F1%C6%D5%CA%C5%CA%C0) 3017982
 1. [拜登团队拟审核财政部制裁计划](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%CD%C5%B6%D3%C4%E2%C9%F3%BA%CB%B2%C6%D5%FE%B2%BF%D6%C6%B2%C3%BC%C6%BB%AE) 2959675
 1. [苹果头戴式耳机不配充电头](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%BB%B9%FB%CD%B7%B4%F7%CA%BD%B6%FA%BB%FA%B2%BB%C5%E4%B3%E4%B5%E7%CD%B7) 2950297
 1. [2020让人泪目的瞬间](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C8%C3%C8%CB%C0%E1%C4%BF%B5%C4%CB%B2%BC%E4) 2856086
@@ -50,6 +52,7 @@
 1. [陕西多名未成年女生被诱导陪酒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%C2%CE%F7%B6%E0%C3%FB%CE%B4%B3%C9%C4%EA%C5%AE%C9%FA%B1%BB%D3%D5%B5%BC%C5%E3%BE%C6) 2476741
 1. [韩总统文在寅:考虑加入CPTPP](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%D7%DC%CD%B3%CE%C4%D4%DA%D2%FA%3A%BF%BC%C2%C7%BC%D3%C8%EBCPTPP) 2468893
 1. [美再度对台军售 蔡办发言人:感谢](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D4%D9%B6%C8%B6%D4%CC%A8%BE%FC%CA%DB%20%B2%CC%B0%EC%B7%A2%D1%D4%C8%CB%3A%B8%D0%D0%BB) 2382482
+1. [拜登宣布上任百天实现三大目标](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%D0%FB%B2%BC%C9%CF%C8%CE%B0%D9%CC%EC%CA%B5%CF%D6%C8%FD%B4%F3%C4%BF%B1%EA) 2351840
 1. [外媒:美国众议院通过涉港议案](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C3%BD%3A%C3%C0%B9%FA%D6%DA%D2%E9%D4%BA%CD%A8%B9%FD%C9%E6%B8%DB%D2%E9%B0%B8) 2299095
 1. [美重症病房护士上班途中被枪杀](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D6%D8%D6%A2%B2%A1%B7%BF%BB%A4%CA%BF%C9%CF%B0%E0%CD%BE%D6%D0%B1%BB%C7%B9%C9%B1) 2225679
 1. [广州立案调查辛巴带货假燕窝事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%C1%A2%B0%B8%B5%F7%B2%E9%D0%C1%B0%CD%B4%F8%BB%F5%BC%D9%D1%E0%CE%D1%CA%C2%BC%FE) 2218627
