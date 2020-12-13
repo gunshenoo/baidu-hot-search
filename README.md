@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2020-12-13 15:19:42
+最后更新时间 2020-12-13 16:23:01
 
 1. [31省区市新增24例确诊:本土5例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F624%C0%FD%C8%B7%D5%EF%3A%B1%BE%CD%C15%C0%FD) 4914871
 1. [素媛案罪犯到家画面:警察堵门保护](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D8%E6%C2%B0%B8%D7%EF%B7%B8%B5%BD%BC%D2%BB%AD%C3%E6%3A%BE%AF%B2%EC%B6%C2%C3%C5%B1%A3%BB%A4) 4865777
@@ -23,6 +23,7 @@
 1. [特朗普:最高法院让我们失望](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%3A%D7%EE%B8%DF%B7%A8%D4%BA%C8%C3%CE%D2%C3%C7%CA%A7%CD%FB) 4695474
 1. [40分钟内中日美接连地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=40%B7%D6%D6%D3%C4%DA%D6%D0%C8%D5%C3%C0%BD%D3%C1%AC%B5%D8%D5%F0) 4576850
 1. [南京多处遇难同胞丛葬地摆满鲜花](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%BE%A9%B6%E0%B4%A6%D3%F6%C4%D1%CD%AC%B0%FB%B4%D4%D4%E1%B5%D8%B0%DA%C2%FA%CF%CA%BB%A8) 4571988
+1. [黑龙江绥芬河转入战时状态](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%CB%E7%B7%D2%BA%D3%D7%AA%C8%EB%D5%BD%CA%B1%D7%B4%CC%AC) 4441389
 1. [韩民间人士起诉中韩政府败诉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%C3%F1%BC%E4%C8%CB%CA%BF%C6%F0%CB%DF%D6%D0%BA%AB%D5%FE%B8%AE%B0%DC%CB%DF) 4416661
 1. [素媛案罪犯抵住处引抗议 房东澄清](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D8%E6%C2%B0%B8%D7%EF%B7%B8%B5%D6%D7%A1%B4%A6%D2%FD%BF%B9%D2%E9%20%B7%BF%B6%AB%B3%CE%C7%E5) 4411969
 1. [青少年足球赛现“断子绝孙脚”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E0%C9%D9%C4%EA%D7%E3%C7%F2%C8%FC%CF%D6%A1%B0%B6%CF%D7%D3%BE%F8%CB%EF%BD%C5%A1%B1) 4262077
@@ -39,8 +40,10 @@
 1. [特朗普不戴口罩现身橄榄球赛场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B2%BB%B4%F7%BF%DA%D5%D6%CF%D6%C9%ED%E9%CF%E9%AD%C7%F2%C8%FC%B3%A1) 3802112
 1. [83年前媒体这样记录南京生死13天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=83%C4%EA%C7%B0%C3%BD%CC%E5%D5%E2%D1%F9%BC%C7%C2%BC%C4%CF%BE%A9%C9%FA%CB%C013%CC%EC) 3692062
 1. [清华老师遗弃女儿:出生三天就消失](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E5%BB%AA%C0%CF%CA%A6%D2%C5%C6%FA%C5%AE%B6%F9%3A%B3%F6%C9%FA%C8%FD%CC%EC%BE%CD%CF%FB%CA%A7) 3660832
+1. [南京大屠杀:每隔12秒就有1人遇难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%BE%A9%B4%F3%CD%C0%C9%B1%3A%C3%BF%B8%F412%C3%EB%BE%CD%D3%D01%C8%CB%D3%F6%C4%D1) 3586598
 1. [成都学生用手机灯光致敬防疫人员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%C9%B6%BC%D1%A7%C9%FA%D3%C3%CA%D6%BB%FA%B5%C6%B9%E2%D6%C2%BE%B4%B7%C0%D2%DF%C8%CB%D4%B1) 3566629
 1. [九层妖楼古墓被盗:盗贼开价1.8亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%C5%B2%E3%D1%FD%C2%A5%B9%C5%C4%B9%B1%BB%B5%C1%3A%B5%C1%D4%F4%BF%AA%BC%DB1.8%D2%DA) 3562840
+1. [外卖员逆行被交警连人带车拽倒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C2%F4%D4%B1%C4%E6%D0%D0%B1%BB%BD%BB%BE%AF%C1%AC%C8%CB%B4%F8%B3%B5%D7%A7%B5%B9) 3461067
 1. [钟南山回母校变追星现场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D3%C4%CF%C9%BD%BB%D8%C4%B8%D0%A3%B1%E4%D7%B7%D0%C7%CF%D6%B3%A1) 3441797
 1. [一场会议导致24.5万人感染新冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BB%B3%A1%BB%E1%D2%E9%B5%BC%D6%C224.5%CD%F2%C8%CB%B8%D0%C8%BE%D0%C2%B9%DA) 3438140
 1. [忍受丈夫打骂四十年欲离婚被驳回](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%CC%CA%DC%D5%C9%B7%F2%B4%F2%C2%EE%CB%C4%CA%AE%C4%EA%D3%FB%C0%EB%BB%E9%B1%BB%B2%B5%BB%D8) 3321334
@@ -58,6 +61,7 @@
 1. [康辉21岁面试视频曝光](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%B5%BB%D421%CB%EA%C3%E6%CA%D4%CA%D3%C6%B5%C6%D8%B9%E2) 2806637
 1. [张桂梅看到山区女孩成才哭成泪人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B9%F0%C3%B7%BF%B4%B5%BD%C9%BD%C7%F8%C5%AE%BA%A2%B3%C9%B2%C5%BF%DE%B3%C9%C0%E1%C8%CB) 2779387
 1. [中国2种大熊猫已30万年没有来往](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA2%D6%D6%B4%F3%D0%DC%C3%A8%D2%D130%CD%F2%C4%EA%C3%BB%D3%D0%C0%B4%CD%F9) 2776435
+1. [11岁女孩给小卖部老板转账4万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=11%CB%EA%C5%AE%BA%A2%B8%F8%D0%A1%C2%F4%B2%BF%C0%CF%B0%E5%D7%AA%D5%CB4%CD%F2) 2697125
 1. [北京雪花已“到货”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D1%A9%BB%A8%D2%D1%A1%B0%B5%BD%BB%F5%A1%B1) 2682109
 1. [成都一女子翻越隔离墙被当场控制](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%C9%B6%BC%D2%BB%C5%AE%D7%D3%B7%AD%D4%BD%B8%F4%C0%EB%C7%BD%B1%BB%B5%B1%B3%A1%BF%D8%D6%C6) 2679259
 1. [男子为躲老婆半夜砸警车求坐牢](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%CE%AA%B6%E3%C0%CF%C6%C5%B0%EB%D2%B9%D4%D2%BE%AF%B3%B5%C7%F3%D7%F8%C0%CE) 2613610
@@ -68,6 +72,7 @@
 1. [幸存者回忆南京大屠杀:死人成堆](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%D2%B4%E6%D5%DF%BB%D8%D2%E4%C4%CF%BE%A9%B4%F3%CD%C0%C9%B1%3A%CB%C0%C8%CB%B3%C9%B6%D1) 2494993
 1. [南京市民驻足为遇难者默哀](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%BE%A9%CA%D0%C3%F1%D7%A4%D7%E3%CE%AA%D3%F6%C4%D1%D5%DF%C4%AC%B0%A7) 2479435
 1. [嫦娥五号第一次月地转移入射成功](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%E6%CF%B6%F0%CE%E5%BA%C5%B5%DA%D2%BB%B4%CE%D4%C2%B5%D8%D7%AA%D2%C6%C8%EB%C9%E4%B3%C9%B9%A6) 2446325
+1. [女子网恋被骗1500万 男友竟有17人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%CD%F8%C1%B5%B1%BB%C6%AD1500%CD%F2%20%C4%D0%D3%D1%BE%B9%D3%D017%C8%CB) 2423723
 1. [清华两学生回应接力状告ofo](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E5%BB%AA%C1%BD%D1%A7%C9%FA%BB%D8%D3%A6%BD%D3%C1%A6%D7%B4%B8%E6ofo) 2410229
 1. [孕妇未做胸透被拒录用案开庭](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%D0%B8%BE%CE%B4%D7%F6%D0%D8%CD%B8%B1%BB%BE%DC%C2%BC%D3%C3%B0%B8%BF%AA%CD%A5) 2410061
 1. [香港法院拒绝黎智英保释申请](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%E3%B8%DB%B7%A8%D4%BA%BE%DC%BE%F8%C0%E8%D6%C7%D3%A2%B1%A3%CA%CD%C9%EA%C7%EB) 2407669
@@ -86,6 +91,7 @@
 1. [美法院驳回得州推翻拜登胜选请求](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B7%A8%D4%BA%B2%B5%BB%D8%B5%C3%D6%DD%CD%C6%B7%AD%B0%DD%B5%C7%CA%A4%D1%A1%C7%EB%C7%F3) 2144274
 1. [医护人员联系不到核酸检测点急哭](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BD%BB%A4%C8%CB%D4%B1%C1%AA%CF%B5%B2%BB%B5%BD%BA%CB%CB%E1%BC%EC%B2%E2%B5%E3%BC%B1%BF%DE) 2058117
 1. [南京女大学生遇害案退回补充侦查](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%BE%A9%C5%AE%B4%F3%D1%A7%C9%FA%D3%F6%BA%A6%B0%B8%CD%CB%BB%D8%B2%B9%B3%E4%D5%EC%B2%E9) 2014806
+1. [抗美援朝老战士的转身看哭了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%B9%C3%C0%D4%AE%B3%AF%C0%CF%D5%BD%CA%BF%B5%C4%D7%AA%C9%ED%BF%B4%BF%DE%C1%CB) 1957253
 1. [官方回应环卫工往轿车上铲垃圾](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%BB%B7%CE%C0%B9%A4%CD%F9%BD%CE%B3%B5%C9%CF%B2%F9%C0%AC%BB%F8) 1944288
 <!-- Rank End -->
 
