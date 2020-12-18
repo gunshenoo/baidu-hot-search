@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2020-12-18 12:27:29
+最后更新时间 2020-12-18 13:23:16
 
 1. [拜登顾问新冠检测阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%B9%CB%CE%CA%D0%C2%B9%DA%BC%EC%B2%E2%D1%F4%D0%D4) 4884688
 1. [校长逼女生写不雅检查详情披露](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A3%B3%A4%B1%C6%C5%AE%C9%FA%D0%B4%B2%BB%D1%C5%BC%EC%B2%E9%CF%EA%C7%E9%C5%FB%C2%B6) 4831971
@@ -38,6 +38,7 @@
 1. [京东再次为低俗广告道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%A9%B6%AB%D4%D9%B4%CE%CE%AA%B5%CD%CB%D7%B9%E3%B8%E6%B5%C0%C7%B8) 3544725
 1. [韩国女歌手宝儿被检方调查](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA%C5%AE%B8%E8%CA%D6%B1%A6%B6%F9%B1%BB%BC%EC%B7%BD%B5%F7%B2%E9) 3383743
 1. [莱万当选FIFA世界足球先生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%B3%CD%F2%B5%B1%D1%A1FIFA%CA%C0%BD%E7%D7%E3%C7%F2%CF%C8%C9%FA) 3300937
+1. [爸爸辅导功课怒点作业险烧邻居家](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%D6%B0%D6%B8%A8%B5%BC%B9%A6%BF%CE%C5%AD%B5%E3%D7%F7%D2%B5%CF%D5%C9%D5%C1%DA%BE%D3%BC%D2) 3231881
 1. [未来中国还将实施火星取样返回](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%B4%C0%B4%D6%D0%B9%FA%BB%B9%BD%AB%CA%B5%CA%A9%BB%F0%D0%C7%C8%A1%D1%F9%B7%B5%BB%D8) 3203825
 1. [孙兴�O超级奔袭获普斯卡什奖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%EF%D0%CB%91O%B3%AC%BC%B6%B1%BC%CF%AE%BB%F1%C6%D5%CB%B9%BF%A8%CA%B2%BD%B1) 3185404
 1. [王祖蓝二胎得女](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%D7%E6%C0%B6%B6%FE%CC%A5%B5%C3%C5%AE) 2983482
@@ -52,6 +53,7 @@
 1. [郎平确认带队至东京奥运会结束](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%C9%C6%BD%C8%B7%C8%CF%B4%F8%B6%D3%D6%C1%B6%AB%BE%A9%B0%C2%D4%CB%BB%E1%BD%E1%CA%F8) 2616744
 1. [丁真撞脸邋遢大王](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%A1%D5%E6%D7%B2%C1%B3%E5%E5%E5%DD%B4%F3%CD%F5) 2496663
 1. [美国首位原住民内阁部长或诞生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%CA%D7%CE%BB%D4%AD%D7%A1%C3%F1%C4%DA%B8%F3%B2%BF%B3%A4%BB%F2%B5%AE%C9%FA) 2455518
+1. [老人超市拿鸡蛋被拦猝死案宣判](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CF%C8%CB%B3%AC%CA%D0%C4%C3%BC%A6%B5%B0%B1%BB%C0%B9%E2%A7%CB%C0%B0%B8%D0%FB%C5%D0) 2430378
 1. [00后拒服兵役被开除学籍罚8万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=00%BA%F3%BE%DC%B7%FE%B1%F8%D2%DB%B1%BB%BF%AA%B3%FD%D1%A7%BC%AE%B7%A38%CD%F2) 2409280
 1. [木匠爷爷用榫卯工艺制作变形金刚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%BE%BD%B3%D2%AF%D2%AF%D3%C3%E9%BE%C3%AE%B9%A4%D2%D5%D6%C6%D7%F7%B1%E4%D0%CE%BD%F0%B8%D5) 2395427
 1. [棒！嫦娥五号创造5项中国首次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%F4%A3%A1%E6%CF%B6%F0%CE%E5%BA%C5%B4%B4%D4%EC5%CF%EE%D6%D0%B9%FA%CA%D7%B4%CE) 2324955
