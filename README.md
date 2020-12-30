@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2020-12-30 20:32:20
+最后更新时间 2020-12-30 21:34:00
 
 1. [12月新增本土确诊病例104例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=12%D4%C2%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD104%C0%FD) 4917222
 1. [31省新增24例确诊 其中本土7例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F624%C0%FD%C8%B7%D5%EF%20%C6%E4%D6%D0%B1%BE%CD%C17%C0%FD) 4916218
@@ -45,6 +45,7 @@
 1. [河南捡蒜瓣致8死事故4人被追刑责](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%BC%F1%CB%E2%B0%EA%D6%C28%CB%C0%CA%C2%B9%CA4%C8%CB%B1%BB%D7%B7%D0%CC%D4%F0) 3826671
 1. [小学保安砍伤41名师生 二审死刑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%D1%A7%B1%A3%B0%B2%BF%B3%C9%CB41%C3%FB%CA%A6%C9%FA%20%B6%FE%C9%F3%CB%C0%D0%CC) 3798039
 1. [劳荣枝案唯一幸存者发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CD%C8%D9%D6%A6%B0%B8%CE%A8%D2%BB%D0%D2%B4%E6%D5%DF%B7%A2%C9%F9) 3697757
+1. [“呼格案”时任刑警队长自缢身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B0%BA%F4%B8%F1%B0%B8%A1%B1%CA%B1%C8%CE%D0%CC%BE%AF%B6%D3%B3%A4%D7%D4%E7%CB%C9%ED%CD%F6) 3695652
 1. [被泼化学物质女生或会毁容留疤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%BB%C6%C3%BB%AF%D1%A7%CE%EF%D6%CA%C5%AE%C9%FA%BB%F2%BB%E1%BB%D9%C8%DD%C1%F4%B0%CC) 3692737
 1. [北京企业平均薪酬达16.68万元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%C6%F3%D2%B5%C6%BD%BE%F9%D0%BD%B3%EA%B4%EF16.68%CD%F2%D4%AA) 3665118
 1. [“老干妈”儿子公司被限制高消费](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B0%C0%CF%B8%C9%C2%E8%A1%B1%B6%F9%D7%D3%B9%AB%CB%BE%B1%BB%CF%DE%D6%C6%B8%DF%CF%FB%B7%D1) 3567606
