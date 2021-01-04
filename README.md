@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-05 05:22:45
+最后更新时间 2021-01-05 06:30:41
 
 1. [全国目前共有49个中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%C4%BF%C7%B0%B9%B2%D3%D049%B8%F6%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 4834886
 1. [沈阳疫情1传27 首例确诊者轨迹公布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%F2%D1%F4%D2%DF%C7%E91%B4%AB27%20%CA%D7%C0%FD%C8%B7%D5%EF%D5%DF%B9%EC%BC%A3%B9%AB%B2%BC) 4502367
