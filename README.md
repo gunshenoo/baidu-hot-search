@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-07 05:23:16
+最后更新时间 2021-01-07 06:32:01
 
 1. [石家庄新增7例核酸阳性样本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F67%C0%FD%BA%CB%CB%E1%D1%F4%D0%D4%D1%F9%B1%BE) 4895908
 1. [河北已从外地抽调1000名医务人员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D2%D1%B4%D3%CD%E2%B5%D8%B3%E9%B5%F71000%C3%FB%D2%BD%CE%F1%C8%CB%D4%B1) 4399620
