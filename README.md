@@ -14,16 +14,18 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-07 16:35:11
+最后更新时间 2021-01-07 17:37:12
 
 1. [石家庄新增7例核酸阳性样本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F67%C0%FD%BA%CB%CB%E1%D1%F4%D0%D4%D1%F9%B1%BE) 4895908
 1. [外交部回应美国国会遭暴力冲击](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6%C3%C0%B9%FA%B9%FA%BB%E1%D4%E2%B1%A9%C1%A6%B3%E5%BB%F7) 4789668
+1. [美国国会确认拜登赢得美国大选](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%B9%FA%BB%E1%C8%B7%C8%CF%B0%DD%B5%C7%D3%AE%B5%C3%C3%C0%B9%FA%B4%F3%D1%A1) 4772917
 1. [31省新增本土确诊52例:河北51例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF52%C0%FD%3A%BA%D3%B1%B151%C0%FD) 4741349
 1. [特朗普支持者强闯国会与警察激战](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%D6%A7%B3%D6%D5%DF%C7%BF%B4%B3%B9%FA%BB%E1%D3%EB%BE%AF%B2%EC%BC%A4%D5%BD) 4575402
 1. [河北省新增69例本地无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CA%A1%D0%C2%D4%F669%C0%FD%B1%BE%B5%D8%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 4415263
 1. [河北已从外地抽调1000名医务人员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D2%D1%B4%D3%CD%E2%B5%D8%B3%E9%B5%F71000%C3%FB%D2%BD%CE%F1%C8%CB%D4%B1) 4399620
 1. [河北疫情暴露国内防控最薄弱环节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D2%DF%C7%E9%B1%A9%C2%B6%B9%FA%C4%DA%B7%C0%BF%D8%D7%EE%B1%A1%C8%F5%BB%B7%BD%DA) 4304150
 1. [广东报告新冠病毒南非突变株](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%B1%A8%B8%E6%D0%C2%B9%DA%B2%A1%B6%BE%C4%CF%B7%C7%CD%BB%B1%E4%D6%EA) 4245633
+1. [彭斯宣布拜登正式赢得美国大选](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%ED%CB%B9%D0%FB%B2%BC%B0%DD%B5%C7%D5%FD%CA%BD%D3%AE%B5%C3%C3%C0%B9%FA%B4%F3%D1%A1) 4138978
 1. [全国多地倡议就地过年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B6%E0%B5%D8%B3%AB%D2%E9%BE%CD%B5%D8%B9%FD%C4%EA) 4111603
 1. [外媒:美民主党夺回参议院控制权](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C3%BD%3A%C3%C0%C3%F1%D6%F7%B5%B3%B6%E1%BB%D8%B2%CE%D2%E9%D4%BA%BF%D8%D6%C6%C8%A8) 4097036
 1. [石家庄火车站暂停进站乘车](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BB%F0%B3%B5%D5%BE%D4%DD%CD%A3%BD%F8%D5%BE%B3%CB%B3%B5) 4072604
@@ -48,11 +50,12 @@
 1. [铁路部门推出免费退票措施](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%FA%C2%B7%B2%BF%C3%C5%CD%C6%B3%F6%C3%E2%B7%D1%CD%CB%C6%B1%B4%EB%CA%A9) 3262953
 1. [苹果笔记本有望为iPhone无线充电](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%BB%B9%FB%B1%CA%BC%C7%B1%BE%D3%D0%CD%FB%CE%AAiPhone%CE%DE%CF%DF%B3%E4%B5%E7) 3204073
 1. [伦敦法院拒绝阿桑奇的保释请求](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%D7%B6%D8%B7%A8%D4%BA%BE%DC%BE%F8%B0%A2%C9%A3%C6%E6%B5%C4%B1%A3%CA%CD%C7%EB%C7%F3) 3192721
-1. [石家庄50例病例轨迹:多人参加婚宴](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF50%C0%FD%B2%A1%C0%FD%B9%EC%BC%A3%3A%B6%E0%C8%CB%B2%CE%BC%D3%BB%E9%D1%E7) 2983713
+1. [石家庄50例病例轨迹:多人参加婚宴](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF50%C0%FD%B2%A1%C0%FD%B9%EC%BC%A3%3A%B6%E0%C8%CB%B2%CE%BC%D3%BB%E9%D1%E7) 3003578
 1. [家属宣告王相军遗体搜救结束](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D2%CA%F4%D0%FB%B8%E6%CD%F5%CF%E0%BE%FC%D2%C5%CC%E5%CB%D1%BE%C8%BD%E1%CA%F8) 2973142
 1. [北京迎1966年以来最冷早晨](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D3%AD1966%C4%EA%D2%D4%C0%B4%D7%EE%C0%E4%D4%E7%B3%BF) 2879283
 1. [彭斯称自己无权改变大选结果](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%ED%CB%B9%B3%C6%D7%D4%BC%BA%CE%DE%C8%A8%B8%C4%B1%E4%B4%F3%D1%A1%BD%E1%B9%FB) 2869082
 1. [北京动物园猴子抱团取暖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%B6%AF%CE%EF%D4%B0%BA%EF%D7%D3%B1%A7%CD%C5%C8%A1%C5%AF) 2837874
+1. [北京多地区气温跌破历史极值](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%B6%E0%B5%D8%C7%F8%C6%F8%CE%C2%B5%F8%C6%C6%C0%FA%CA%B7%BC%AB%D6%B5) 2797007
 1. [15个新一线城市房价皆过万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=15%B8%F6%D0%C2%D2%BB%CF%DF%B3%C7%CA%D0%B7%BF%BC%DB%BD%D4%B9%FD%CD%F2) 2778508
 1. [顺丰确认暂停全网发往河北省快件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%B3%B7%E1%C8%B7%C8%CF%D4%DD%CD%A3%C8%AB%CD%F8%B7%A2%CD%F9%BA%D3%B1%B1%CA%A1%BF%EC%BC%FE) 2768664
 1. [美国会内对峙画面:议员逃难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%BB%E1%C4%DA%B6%D4%D6%C5%BB%AD%C3%E6%3A%D2%E9%D4%B1%CC%D3%C4%D1) 2681260
