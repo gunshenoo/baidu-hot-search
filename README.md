@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-08 11:49:06
+最后更新时间 2021-01-08 12:44:53
 
 1. [美国国会确认拜登赢得美国大选](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%B9%FA%BB%E1%C8%B7%C8%CF%B0%DD%B5%C7%D3%AE%B5%C3%C3%C0%B9%FA%B4%F3%D1%A1) 4914366
 1. [石家庄全市人员车辆不得出市](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%C8%AB%CA%D0%C8%CB%D4%B1%B3%B5%C1%BE%B2%BB%B5%C3%B3%F6%CA%D0) 4742363
@@ -63,8 +63,9 @@
 1. [专家解读青岛海浩奇观](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%A8%BC%D2%BD%E2%B6%C1%C7%E0%B5%BA%BA%A3%BA%C6%C6%E6%B9%DB) 2016742
 1. [5月大婴儿用抑菌霜后成大头娃娃](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=5%D4%C2%B4%F3%D3%A4%B6%F9%D3%C3%D2%D6%BE%FA%CB%AA%BA%F3%B3%C9%B4%F3%CD%B7%CD%DE%CD%DE) 2002557
 1. [教育部启动本科毕业论文抽检试点](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%CC%D3%FD%B2%BF%C6%F4%B6%AF%B1%BE%BF%C6%B1%CF%D2%B5%C2%DB%CE%C4%B3%E9%BC%EC%CA%D4%B5%E3) 1932467
+1. [日本首相宣布首都圈进入紧急状态](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%CA%D7%CF%E0%D0%FB%B2%BC%CA%D7%B6%BC%C8%A6%BD%F8%C8%EB%BD%F4%BC%B1%D7%B4%CC%AC) 1856365
 1. [全国多地倡议就地过年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B6%E0%B5%D8%B3%AB%D2%E9%BE%CD%B5%D8%B9%FD%C4%EA) 1812309
-1. [日本首相宣布首都圈进入紧急状态](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%CA%D7%CF%E0%D0%FB%B2%BC%CA%D7%B6%BC%C8%A6%BD%F8%C8%EB%BD%F4%BC%B1%D7%B4%CC%AC) 1811853
+1. [白岩松谈打工人现象](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%D7%D1%D2%CB%C9%CC%B8%B4%F2%B9%A4%C8%CB%CF%D6%CF%F3) 1728693
 1. [苹果笔记本有望为iPhone无线充电](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%BB%B9%FB%B1%CA%BC%C7%B1%BE%D3%D0%CD%FB%CE%AAiPhone%CE%DE%CF%DF%B3%E4%B5%E7) 1690605
 <!-- Rank End -->
 
