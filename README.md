@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-10 15:41:20
+最后更新时间 2021-01-10 16:37:35
 
 1. [石家庄累计检出阳性人员354人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%C0%DB%BC%C6%BC%EC%B3%F6%D1%F4%D0%D4%C8%CB%D4%B1354%C8%CB) 4910382
 1. [河北新增40例确诊病例 均在石家庄](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F640%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD%20%BE%F9%D4%DA%CA%AF%BC%D2%D7%AF) 4888091
@@ -23,6 +23,7 @@
 1. [印尼客机失事现场发现人体遗骸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%BF%CD%BB%FA%CA%A7%CA%C2%CF%D6%B3%A1%B7%A2%CF%D6%C8%CB%CC%E5%D2%C5%BA%A1) 4650721
 1. [中方回应边防部队1名士兵走失](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B7%BD%BB%D8%D3%A6%B1%DF%B7%C0%B2%BF%B6%D31%C3%FB%CA%BF%B1%F8%D7%DF%CA%A7) 4572671
 1. [黄晓明退出乘风破浪的姐姐](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%C6%CF%FE%C3%F7%CD%CB%B3%F6%B3%CB%B7%E7%C6%C6%C0%CB%B5%C4%BD%E3%BD%E3) 4551912
+1. [河北向全国发出38份密接协查函](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CF%F2%C8%AB%B9%FA%B7%A2%B3%F638%B7%DD%C3%DC%BD%D3%D0%AD%B2%E9%BA%AF) 4529006
 1. [北京新增1例本土确诊 现住顺义](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F61%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%20%CF%D6%D7%A1%CB%B3%D2%E5) 4504646
 1. [英国女王及丈夫已接种新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A2%B9%FA%C5%AE%CD%F5%BC%B0%D5%C9%B7%F2%D2%D1%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E7) 4412627
 1. [印尼坠毁客机未按既定航向飞行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%D7%B9%BB%D9%BF%CD%BB%FA%CE%B4%B0%B4%BC%C8%B6%A8%BA%BD%CF%F2%B7%C9%D0%D0) 4392595
@@ -30,17 +31,19 @@
 1. [多条铁路河北各站停售进京票](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%CC%F5%CC%FA%C2%B7%BA%D3%B1%B1%B8%F7%D5%BE%CD%A3%CA%DB%BD%F8%BE%A9%C6%B1) 4294528
 1. [石家庄为何实行7天居家防控?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%CE%AA%BA%CE%CA%B5%D0%D07%CC%EC%BE%D3%BC%D2%B7%C0%BF%D8%3F) 4258185
 1. [石家庄新增4个中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F64%B8%F6%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 4238854
+1. [河北省零号病例可能早于12月15日](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CA%A1%C1%E3%BA%C5%B2%A1%C0%FD%BF%C9%C4%DC%D4%E7%D3%DA12%D4%C215%C8%D5) 4217524
 1. [多家快递春节不打烊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%BC%D2%BF%EC%B5%DD%B4%BA%BD%DA%B2%BB%B4%F2%EC%C8) 4109149
 1. [美称将停止官方与台湾接触上的限制](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B3%C6%BD%AB%CD%A3%D6%B9%B9%D9%B7%BD%D3%EB%CC%A8%CD%E5%BD%D3%B4%A5%C9%CF%B5%C4%CF%DE%D6%C6) 4048019
 1. [章子怡 别再消费我营销少女感了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C2%D7%D3%E2%F9%20%B1%F0%D4%D9%CF%FB%B7%D1%CE%D2%D3%AA%CF%FA%C9%D9%C5%AE%B8%D0%C1%CB) 3965328
 1. [石家庄举报哄抬物价最高奖5000元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BE%D9%B1%A8%BA%E5%CC%A7%CE%EF%BC%DB%D7%EE%B8%DF%BD%B15000%D4%AA) 3906339
 1. [印尼失联航班上无中国籍乘客](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%CA%A7%C1%AA%BA%BD%B0%E0%C9%CF%CE%DE%D6%D0%B9%FA%BC%AE%B3%CB%BF%CD) 3826542
+1. [今年三九没有二九冷](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F1%C4%EA%C8%FD%BE%C5%C3%BB%D3%D0%B6%FE%BE%C5%C0%E4) 3790002
 1. [官方辟谣欧美神父引发河北疫情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%B1%D9%D2%A5%C5%B7%C3%C0%C9%F1%B8%B8%D2%FD%B7%A2%BA%D3%B1%B1%D2%DF%C7%E9) 3692613
-1. [今年三九没有二九冷](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F1%C4%EA%C8%FD%BE%C5%C3%BB%D3%D0%B6%FE%BE%C5%C0%E4) 3675850
 1. [彭斯将出席拜登就职典礼](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%ED%CB%B9%BD%AB%B3%F6%CF%AF%B0%DD%B5%C7%BE%CD%D6%B0%B5%E4%C0%F1) 3637680
 1. [七旬老人毒杀22条宠物狗获刑3年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DF%D1%AE%C0%CF%C8%CB%B6%BE%C9%B122%CC%F5%B3%E8%CE%EF%B9%B7%BB%F1%D0%CC3%C4%EA) 3563371
 1. [抱走佩洛西讲台男子被捕](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%A7%D7%DF%C5%E5%C2%E5%CE%F7%BD%B2%CC%A8%C4%D0%D7%D3%B1%BB%B2%B6) 3547195
 1. [大S婆婆张兰回应被判入狱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3S%C6%C5%C6%C5%D5%C5%C0%BC%BB%D8%D3%A6%B1%BB%C5%D0%C8%EB%D3%FC) 3438653
+1. [大爷插队未遂用菜猛砸收银员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D2%AF%B2%E5%B6%D3%CE%B4%CB%EC%D3%C3%B2%CB%C3%CD%D4%D2%CA%D5%D2%F8%D4%B1) 3405818
 1. [青岛海浪翻涌瞬间被冻住](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E0%B5%BA%BA%A3%C0%CB%B7%AD%D3%BF%CB%B2%BC%E4%B1%BB%B6%B3%D7%A1) 3318301
 1. [斯诺克世界第一特鲁姆普感染新冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%B9%C5%B5%BF%CB%CA%C0%BD%E7%B5%DA%D2%BB%CC%D8%C2%B3%C4%B7%C6%D5%B8%D0%C8%BE%D0%C2%B9%DA) 3303237
 1. [石家庄:疫情还不能确定出现拐点](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%3A%D2%DF%C7%E9%BB%B9%B2%BB%C4%DC%C8%B7%B6%A8%B3%F6%CF%D6%B9%D5%B5%E3) 3202160
