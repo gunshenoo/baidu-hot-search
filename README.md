@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-12 03:41:24
+最后更新时间 2021-01-12 04:32:47
 
 1. [石家庄今日新增16例确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BD%F1%C8%D5%D0%C2%D4%F616%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD) 4863769
 1. [特朗普夫人发文谴责国会暴乱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B7%F2%C8%CB%B7%A2%CE%C4%C7%B4%D4%F0%B9%FA%BB%E1%B1%A9%C2%D2) 4693537
@@ -42,9 +42,9 @@
 1. [北京两日7例感染者均来自同一家庭](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%C1%BD%C8%D57%C0%FD%B8%D0%C8%BE%D5%DF%BE%F9%C0%B4%D7%D4%CD%AC%D2%BB%BC%D2%CD%A5) 2221129
 1. [百名蔚来车主飞机内不戴口罩蹦迪](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%D9%C3%FB%CE%B5%C0%B4%B3%B5%D6%F7%B7%C9%BB%FA%C4%DA%B2%BB%B4%F7%BF%DA%D5%D6%B1%C4%B5%CF) 2215333
 1. [印尼政府批准使用中国新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%D5%FE%B8%AE%C5%FA%D7%BC%CA%B9%D3%C3%D6%D0%B9%FA%D0%C2%B9%DA%D2%DF%C3%E7) 2160923
+1. [北京顺义全区农村实行封闭管理](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%CB%B3%D2%E5%C8%AB%C7%F8%C5%A9%B4%E5%CA%B5%D0%D0%B7%E2%B1%D5%B9%DC%C0%ED) 2126750
 1. [北京出租车网约车防疫不力将熔断](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%B3%F6%D7%E2%B3%B5%CD%F8%D4%BC%B3%B5%B7%C0%D2%DF%B2%BB%C1%A6%BD%AB%C8%DB%B6%CF) 2062973
 1. [贵州大妈将千元腊肉熏成灰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%F3%D6%DD%B4%F3%C2%E8%BD%AB%C7%A7%D4%AA%C0%B0%C8%E2%D1%AC%B3%C9%BB%D2) 1941874
-1. [北京顺义全区农村实行封闭管理](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%CB%B3%D2%E5%C8%AB%C7%F8%C5%A9%B4%E5%CA%B5%D0%D0%B7%E2%B1%D5%B9%DC%C0%ED) 1926118
 1. [拼多多回应员工匿名发帖被辞退](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%B4%B6%E0%B6%E0%BB%D8%D3%A6%D4%B1%B9%A4%C4%E4%C3%FB%B7%A2%CC%FB%B1%BB%B4%C7%CD%CB) 1873909
 1. [小区楼顶漏水一夜整栋楼成冰瀑布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%C7%F8%C2%A5%B6%A5%C2%A9%CB%AE%D2%BB%D2%B9%D5%FB%B6%B0%C2%A5%B3%C9%B1%F9%C6%D9%B2%BC) 1808322
 1. [美媒:特朗普没有辞职计划](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%C3%BD%3A%CC%D8%C0%CA%C6%D5%C3%BB%D3%D0%B4%C7%D6%B0%BC%C6%BB%AE) 1745031
