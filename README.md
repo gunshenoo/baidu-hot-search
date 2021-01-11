@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-11 22:36:30
+最后更新时间 2021-01-11 23:26:51
 
 1. [河北新增40例确诊病例 均在石家庄](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F640%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD%20%BE%F9%D4%DA%CA%AF%BC%D2%D7%AF) 4913309
 1. [石家庄今日新增16例确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BD%F1%C8%D5%D0%C2%D4%F616%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD) 4880989
@@ -37,6 +37,7 @@
 1. [印尼官方:失事客机在撞击后解体](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%B9%D9%B7%BD%3A%CA%A7%CA%C2%BF%CD%BB%FA%D4%DA%D7%B2%BB%F7%BA%F3%BD%E2%CC%E5) 4111598
 1. [石家庄又有9地升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D3%D6%D3%D09%B5%D8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 4084551
 1. [黑龙江望奎县宣布封城](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%CD%FB%BF%FC%CF%D8%D0%FB%B2%BC%B7%E2%B3%C7) 4081761
+1. [山西晋中新增2例无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%CE%F7%BD%FA%D6%D0%D0%C2%D4%F62%C0%FD%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 3992229
 1. [石家庄计划2天做完第二轮核酸检测](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BC%C6%BB%AE2%CC%EC%D7%F6%CD%EA%B5%DA%B6%FE%C2%D6%BA%CB%CB%E1%BC%EC%B2%E2) 3967692
 1. [河南原副省长徐光受贿案一审宣判](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%D4%AD%B8%B1%CA%A1%B3%A4%D0%EC%B9%E2%CA%DC%BB%DF%B0%B8%D2%BB%C9%F3%D0%FB%C5%D0) 3941592
 1. [美发生连环枪击案 一留学生身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B7%A2%C9%FA%C1%AC%BB%B7%C7%B9%BB%F7%B0%B8%20%D2%BB%C1%F4%D1%A7%C9%FA%C9%ED%CD%F6) 3938500
@@ -56,6 +57,7 @@
 1. [拼多多回应员工匿名发帖被辞退](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%B4%B6%E0%B6%E0%BB%D8%D3%A6%D4%B1%B9%A4%C4%E4%C3%FB%B7%A2%CC%FB%B1%BB%B4%C7%CD%CB) 3415388
 1. [7岁女孩学校内疑遭猥亵 官方通报](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=7%CB%EA%C5%AE%BA%A2%D1%A7%D0%A3%C4%DA%D2%C9%D4%E2%E2%AB%D9%F4%20%B9%D9%B7%BD%CD%A8%B1%A8) 3320278
 1. [石家庄新增确诊曾去过武汉汉正街](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F6%C8%B7%D5%EF%D4%F8%C8%A5%B9%FD%CE%E4%BA%BA%BA%BA%D5%FD%BD%D6) 3295849
+1. [武汉唯一移动方舱CT驰援河北](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%BA%BA%CE%A8%D2%BB%D2%C6%B6%AF%B7%BD%B2%D5CT%B3%DB%D4%AE%BA%D3%B1%B1) 3223883
 1. [康辉说和21岁最大差别是脸的宽度](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%B5%BB%D4%CB%B5%BA%CD21%CB%EA%D7%EE%B4%F3%B2%EE%B1%F0%CA%C7%C1%B3%B5%C4%BF%ED%B6%C8) 3204068
 1. [大连此轮疫情源头已初步锁定](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%C1%AC%B4%CB%C2%D6%D2%DF%C7%E9%D4%B4%CD%B7%D2%D1%B3%F5%B2%BD%CB%F8%B6%A8) 3182992
 1. [吉林新增4例本土无症状:2对夫妻](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D0%C2%D4%F64%C0%FD%B1%BE%CD%C1%CE%DE%D6%A2%D7%B4%3A2%B6%D4%B7%F2%C6%DE) 3180495
@@ -108,6 +110,7 @@
 1. [CBA认定京深战判罚合规](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=CBA%C8%CF%B6%A8%BE%A9%C9%EE%D5%BD%C5%D0%B7%A3%BA%CF%B9%E6) 1839680
 1. [多条铁路河北各站停售进京票](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%CC%F5%CC%FA%C2%B7%BA%D3%B1%B1%B8%F7%D5%BE%CD%A3%CA%DB%BD%F8%BE%A9%C6%B1) 1820797
 1. [武汉向石家庄捐赠50吨蔬菜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%BA%BA%CF%F2%CA%AF%BC%D2%D7%AF%BE%E8%D4%F950%B6%D6%CA%DF%B2%CB) 1733563
+1. [贵州大妈将千元腊肉熏成灰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%F3%D6%DD%B4%F3%C2%E8%BD%AB%C7%A7%D4%AA%C0%B0%C8%E2%D1%AC%B3%C9%BB%D2) 1697739
 1. [河北卡车司机车上睡觉不住宾馆](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%BF%A8%B3%B5%CB%BE%BB%FA%B3%B5%C9%CF%CB%AF%BE%F5%B2%BB%D7%A1%B1%F6%B9%DD) 1693156
 <!-- Rank End -->
 
