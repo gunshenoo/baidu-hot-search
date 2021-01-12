@@ -14,20 +14,23 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-12 16:43:15
+最后更新时间 2021-01-12 17:44:10
 
 1. [31省新增本土确诊42例:河北40例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF42%C0%FD%3A%BA%D3%B1%B140%C0%FD) 4919934
 1. [石家庄今日新增16例确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%BD%F1%C8%D5%D0%C2%D4%F616%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD) 4863769
 1. [石家庄新增16例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F616%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4849382
+1. [北京一确诊病例隐瞒行程被立案侦查](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D2%BB%C8%B7%D5%EF%B2%A1%C0%FD%D2%FE%C2%F7%D0%D0%B3%CC%B1%BB%C1%A2%B0%B8%D5%EC%B2%E9) 4799287
 1. [特朗普批准华盛顿特区进入紧急状态](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%C5%FA%D7%BC%BB%AA%CA%A2%B6%D9%CC%D8%C7%F8%BD%F8%C8%EB%BD%F4%BC%B1%D7%B4%CC%AC) 4747736
 1. [特朗普夫人发文谴责国会暴乱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B7%F2%C8%CB%B7%A2%CE%C4%C7%B4%D4%F0%B9%FA%BB%E1%B1%A9%C2%D2) 4693537
 1. [河北固安全县居民居家隔离7天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%B9%CC%B0%B2%C8%AB%CF%D8%BE%D3%C3%F1%BE%D3%BC%D2%B8%F4%C0%EB7%CC%EC) 4581566
 1. [河北新增确诊40例 无症状26例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F6%C8%B7%D5%EF40%C0%FD%20%CE%DE%D6%A2%D7%B426%C0%FD) 4557705
 1. [北京一确诊者隐瞒行程不配合流调](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D2%BB%C8%B7%D5%EF%D5%DF%D2%FE%C2%F7%D0%D0%B3%CC%B2%BB%C5%E4%BA%CF%C1%F7%B5%F7) 4529263
 1. [河北新增21例本土确诊:石家庄16例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F621%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%3A%CA%AF%BC%D2%D7%AF16%C0%FD) 4490860
+1. [央视牛年春晚Logo发布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%CA%D3%C5%A3%C4%EA%B4%BA%CD%EDLogo%B7%A2%B2%BC) 4469216
 1. [蒙古发生6.8级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C9%B9%C5%B7%A2%C9%FA6.8%BC%B6%B5%D8%D5%F0) 4421211
 1. [中国留美博士遇害:坐车里被枪杀](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C1%F4%C3%C0%B2%A9%CA%BF%D3%F6%BA%A6%3A%D7%F8%B3%B5%C0%EF%B1%BB%C7%B9%C9%B1) 4398185
 1. [中国留美博士遇害 美驻华使馆慰问](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C1%F4%C3%C0%B2%A9%CA%BF%D3%F6%BA%A6%20%C3%C0%D7%A4%BB%AA%CA%B9%B9%DD%CE%BF%CE%CA) 4370739
+1. [可随意展示红码绿码APP已下架](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%C9%CB%E6%D2%E2%D5%B9%CA%BE%BA%EC%C2%EB%C2%CC%C2%EBAPP%D2%D1%CF%C2%BC%DC) 4312793
 1. [北京新增1例本土确诊 系5岁男童](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F61%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%20%CF%B55%CB%EA%C4%D0%CD%AF) 4266468
 1. [理塘文旅公司回应丁真抽烟](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%ED%CC%C1%CE%C4%C2%C3%B9%AB%CB%BE%BB%D8%D3%A6%B6%A1%D5%E6%B3%E9%D1%CC) 4217763
 1. [山东一金矿发生爆炸事故22人被困](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%D2%BB%BD%F0%BF%F3%B7%A2%C9%FA%B1%AC%D5%A8%CA%C2%B9%CA22%C8%CB%B1%BB%C0%A7) 4117142
@@ -36,6 +39,7 @@
 1. [葡萄牙总统新冠病毒检测呈阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%CF%CC%D1%D1%C0%D7%DC%CD%B3%D0%C2%B9%DA%B2%A1%B6%BE%BC%EC%B2%E2%B3%CA%D1%F4%D0%D4) 3973042
 1. [河北一确诊病例在北京西城工作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D2%BB%C8%B7%D5%EF%B2%A1%C0%FD%D4%DA%B1%B1%BE%A9%CE%F7%B3%C7%B9%A4%D7%F7) 3952350
 1. [河南原副省长徐光受贿案一审宣判](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%D4%AD%B8%B1%CA%A1%B3%A4%D0%EC%B9%E2%CA%DC%BB%DF%B0%B8%D2%BB%C9%F3%D0%FB%C5%D0) 3927686
+1. [养殖场5头猪齐心协力拱门越狱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%F8%D6%B3%B3%A15%CD%B7%D6%ED%C6%EB%D0%C4%D0%AD%C1%A6%B9%B0%C3%C5%D4%BD%D3%FC) 3875614
 1. [广州小伙贴7个暖宝宝后背冒烟](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%D0%A1%BB%EF%CC%F97%B8%F6%C5%AF%B1%A6%B1%A6%BA%F3%B1%B3%C3%B0%D1%CC) 3833985
 1. [男孩往窨井扔鞭炮被炸飞5米身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%BA%A2%CD%F9%F1%BF%BE%AE%C8%D3%B1%DE%C5%DA%B1%BB%D5%A8%B7%C95%C3%D7%C9%ED%CD%F6) 3814018
 1. [湖南高院一副庭长被杀害](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%C4%CF%B8%DF%D4%BA%D2%BB%B8%B1%CD%A5%B3%A4%B1%BB%C9%B1%BA%A6) 3758080
@@ -46,6 +50,7 @@
 1. [中国工程院撤销李宁院士称号](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%B9%A4%B3%CC%D4%BA%B3%B7%CF%FA%C0%EE%C4%FE%D4%BA%CA%BF%B3%C6%BA%C5) 3551709
 1. [黑龙江绥化新增无症状感染者26例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%CB%E7%BB%AF%D0%C2%D4%F6%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF26%C0%FD) 3529545
 1. [内蒙古自治区政协原副主席被公诉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%DA%C3%C9%B9%C5%D7%D4%D6%CE%C7%F8%D5%FE%D0%AD%D4%AD%B8%B1%D6%F7%CF%AF%B1%BB%B9%AB%CB%DF) 3523820
+1. [黑河邻里在楼道相逢互亮绿码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%BA%D3%C1%DA%C0%EF%D4%DA%C2%A5%B5%C0%CF%E0%B7%EA%BB%A5%C1%C1%C2%CC%C2%EB) 3482751
 1. [袁隆平入驻抖音本人不知情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%AC%C2%A1%C6%BD%C8%EB%D7%A4%B6%B6%D2%F4%B1%BE%C8%CB%B2%BB%D6%AA%C7%E9) 3445342
 1. [陕西发现1例疑似病例:系小学生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%C2%CE%F7%B7%A2%CF%D61%C0%FD%D2%C9%CB%C6%B2%A1%C0%FD%3A%CF%B5%D0%A1%D1%A7%C9%FA) 3427399
 1. [武汉唯一移动方舱CT驰援河北](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%BA%BA%CE%A8%D2%BB%D2%C6%B6%AF%B7%BD%B2%D5CT%B3%DB%D4%AE%BA%D3%B1%B1) 3324755
@@ -85,12 +90,13 @@
 1. [郑爽回归《追光吧哥哥》](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%A3%CB%AC%BB%D8%B9%E9%A1%B6%D7%B7%B9%E2%B0%C9%B8%E7%B8%E7%A1%B7) 2092269
 1. [拜登将提名威廉・伯恩斯为CIA局长](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BD%AB%CC%E1%C3%FB%CD%FE%C1%AE%A1%A4%B2%AE%B6%F7%CB%B9%CE%AACIA%BE%D6%B3%A4) 2081359
 1. [吉林长春新增无症状感染者3例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%B3%A4%B4%BA%D0%C2%D4%F6%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF3%C0%FD) 2050833
+1. [比特币挖矿约12个月才回本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%CC%D8%B1%D2%CD%DA%BF%F3%D4%BC12%B8%F6%D4%C2%B2%C5%BB%D8%B1%BE) 2040949
+1. [大学生放假前自制装备给盆栽浇水](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D1%A7%C9%FA%B7%C5%BC%D9%C7%B0%D7%D4%D6%C6%D7%B0%B1%B8%B8%F8%C5%E8%D4%D4%BD%BD%CB%AE) 1969516
 1. [小区楼顶漏水一夜整栋楼成冰瀑布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%C7%F8%C2%A5%B6%A5%C2%A9%CB%AE%D2%BB%D2%B9%D5%FB%B6%B0%C2%A5%B3%C9%B1%F9%C6%D9%B2%BC) 1948361
 1. [贵州大妈将千元腊肉熏成灰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%F3%D6%DD%B4%F3%C2%E8%BD%AB%C7%A7%D4%AA%C0%B0%C8%E2%D1%AC%B3%C9%BB%D2) 1941874
 1. [美媒:特朗普没有辞职计划](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%C3%BD%3A%CC%D8%C0%CA%C6%D5%C3%BB%D3%D0%B4%C7%D6%B0%BC%C6%BB%AE) 1880168
-1. [大学生放假前自制装备给盆栽浇水](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D1%A7%C9%FA%B7%C5%BC%D9%C7%B0%D7%D4%D6%C6%D7%B0%B1%B8%B8%F8%C5%E8%D4%D4%BD%BD%CB%AE) 1842944
+1. [石家庄医护收到新疆捐赠的馕](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D2%BD%BB%A4%CA%D5%B5%BD%D0%C2%BD%AE%BE%E8%D4%F9%B5%C4%E2%CE) 1834062
 1. [哈里和梅根夫妇宣布弃用社交媒体](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%C0%EF%BA%CD%C3%B7%B8%F9%B7%F2%B8%BE%D0%FB%B2%BC%C6%FA%D3%C3%C9%E7%BD%BB%C3%BD%CC%E5) 1750859
-1. [比特币挖矿约12个月才回本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%CC%D8%B1%D2%CD%DA%BF%F3%D4%BC12%B8%F6%D4%C2%B2%C5%BB%D8%B1%BE) 1716196
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
