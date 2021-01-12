@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-13 05:31:45
+最后更新时间 2021-01-13 06:39:32
 
 1. [北京一确诊病例隐瞒行程被立案侦查](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D2%BB%C8%B7%D5%EF%B2%A1%C0%FD%D2%FE%C2%F7%D0%D0%B3%CC%B1%BB%C1%A2%B0%B8%D5%EC%B2%E9) 4875796
 1. [美国一只海牛背上被刻特朗普名字](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%BB%D6%BB%BA%A3%C5%A3%B1%B3%C9%CF%B1%BB%BF%CC%CC%D8%C0%CA%C6%D5%C3%FB%D7%D6) 4705144
