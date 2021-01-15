@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-16 05:36:13
+最后更新时间 2021-01-16 06:44:18
 
 1. [石家庄新增48例确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F648%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD) 4898108
 1. [沈阳全员核酸查出命案逃犯](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%F2%D1%F4%C8%AB%D4%B1%BA%CB%CB%E1%B2%E9%B3%F6%C3%FC%B0%B8%CC%D3%B7%B8) 4726674
@@ -36,12 +36,13 @@
 1. [河北邢台新增12例确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%CF%CC%A8%D0%C2%D4%F612%C0%FD%C8%B7%D5%EF%B2%A1%C0%FD) 2579407
 1. [比尔盖茨成美国最大农田主](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%B6%FB%B8%C7%B4%C4%B3%C9%C3%C0%B9%FA%D7%EE%B4%F3%C5%A9%CC%EF%D6%F7) 2489128
 1. [春运期间落实全国健康码互认](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%D4%CB%C6%DA%BC%E4%C2%E4%CA%B5%C8%AB%B9%FA%BD%A1%BF%B5%C2%EB%BB%A5%C8%CF) 2402009
-1. [石家庄第二轮检测发现阳性247例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%B5%DA%B6%FE%C2%D6%BC%EC%B2%E2%B7%A2%CF%D6%D1%F4%D0%D4247%C0%FD) 2395759
+1. [石家庄第二轮检测发现阳性247例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%B5%DA%B6%FE%C2%D6%BC%EC%B2%E2%B7%A2%CF%D6%D1%F4%D0%D4247%C0%FD) 2400281
+1. [河北石家庄9地调整为中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CA%AF%BC%D2%D7%AF9%B5%D8%B5%F7%D5%FB%CE%AA%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 2316271
 1. [拜登称美国疫苗推广是个失败](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%B3%C6%C3%C0%B9%FA%D2%DF%C3%E7%CD%C6%B9%E3%CA%C7%B8%F6%CA%A7%B0%DC) 2261496
-1. [河北石家庄9地调整为中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CA%AF%BC%D2%D7%AF9%B5%D8%B5%F7%D5%FB%CE%AA%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 2236811
 1. [姚安娜否认自己是美国国籍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%A6%B0%B2%C4%C8%B7%F1%C8%CF%D7%D4%BC%BA%CA%C7%C3%C0%B9%FA%B9%FA%BC%AE) 2201090
+1. [西藏阿里捐赠河北4000公斤羊肉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B2%D8%B0%A2%C0%EF%BE%E8%D4%F9%BA%D3%B1%B14000%B9%AB%BD%EF%D1%F2%C8%E2) 2156970
 1. [拼多多退出春晚红包合作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%B4%B6%E0%B6%E0%CD%CB%B3%F6%B4%BA%CD%ED%BA%EC%B0%FC%BA%CF%D7%F7) 2135902
-1. [西藏阿里捐赠河北4000公斤羊肉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B2%D8%B0%A2%C0%EF%BE%E8%D4%F9%BA%D3%B1%B14000%B9%AB%BD%EF%D1%F2%C8%E2) 2077555
+1. [石家庄一病例轨迹:20天仅出门1次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D2%BB%B2%A1%C0%FD%B9%EC%BC%A3%3A20%CC%EC%BD%F6%B3%F6%C3%C51%B4%CE) 2081476
 1. [上海拟建议设结婚冷静期](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%C4%E2%BD%A8%D2%E9%C9%E8%BD%E1%BB%E9%C0%E4%BE%B2%C6%DA) 1989006
 1. [司机被乘客用安全锤砸头 检方介入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%BE%BB%FA%B1%BB%B3%CB%BF%CD%D3%C3%B0%B2%C8%AB%B4%B8%D4%D2%CD%B7%20%BC%EC%B7%BD%BD%E9%C8%EB) 1919391
 1. [救遭猥亵女同学被捕男生发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%C8%D4%E2%E2%AB%D9%F4%C5%AE%CD%AC%D1%A7%B1%BB%B2%B6%C4%D0%C9%FA%B7%A2%C9%F9) 1852212
