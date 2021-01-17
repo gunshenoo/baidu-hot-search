@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-17 14:47:19
+最后更新时间 2021-01-17 15:52:34
 
 1. [31省新增本土确诊96例:河北72例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF96%C0%FD%3A%BA%D3%B1%B172%C0%FD) 4919013
 1. [河北新增32例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F632%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4898128
@@ -23,6 +23,7 @@
 1. [美国"制裁"港府官员 驻港公署驳斥](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%22%D6%C6%B2%C3%22%B8%DB%B8%AE%B9%D9%D4%B1%20%D7%A4%B8%DB%B9%AB%CA%F0%B2%B5%B3%E2) 4726693
 1. [河北新增72例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%C2%D4%F672%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4580708
 1. [特朗普脸书账号和Ins账号被"解封"](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%C1%B3%CA%E9%D5%CB%BA%C5%BA%CDIns%D5%CB%BA%C5%B1%BB%22%BD%E2%B7%E2%22) 4561259
+1. [吉林102例感染者为同一病例传播](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6102%C0%FD%B8%D0%C8%BE%D5%DF%CE%AA%CD%AC%D2%BB%B2%A1%C0%FD%B4%AB%B2%A5) 4552845
 1. [河北邢台南宫实行最严厉封控](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D0%CF%CC%A8%C4%CF%B9%AC%CA%B5%D0%D0%D7%EE%D1%CF%C0%F7%B7%E2%BF%D8) 4401615
 1. [北京新增2例确诊:一人为6岁男童](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F62%C0%FD%C8%B7%D5%EF%3A%D2%BB%C8%CB%CE%AA6%CB%EA%C4%D0%CD%AF) 4265669
 1. [全国大部地区下周将开启升温模式](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B4%F3%B2%BF%B5%D8%C7%F8%CF%C2%D6%DC%BD%AB%BF%AA%C6%F4%C9%FD%CE%C2%C4%A3%CA%BD) 4116371
@@ -47,6 +48,7 @@
 1. [吉林新增10例本土确诊 63例无症状](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D0%C2%D4%F610%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%2063%C0%FD%CE%DE%D6%A2%D7%B4) 3174924
 1. [1传98!吉林"超级传播链"再延长](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=1%B4%AB98%21%BC%AA%C1%D6%22%B3%AC%BC%B6%B4%AB%B2%A5%C1%B4%22%D4%D9%D1%D3%B3%A4) 3090823
 1. [广美教授回应被指抄袭米菲兔](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%C3%C0%BD%CC%CA%DA%BB%D8%D3%A6%B1%BB%D6%B8%B3%AD%CF%AE%C3%D7%B7%C6%CD%C3) 3082373
+1. [男子求复合未果持刀杀死前女友](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C7%F3%B8%B4%BA%CF%CE%B4%B9%FB%B3%D6%B5%B6%C9%B1%CB%C0%C7%B0%C5%AE%D3%D1) 3076687
 1. [新版医保药品目录3月1日启用](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%B0%E6%D2%BD%B1%A3%D2%A9%C6%B7%C4%BF%C2%BC3%D4%C21%C8%D5%C6%F4%D3%C3) 2987172
 1. [1传81!吉林省超级传播事件持续](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=1%B4%AB81%21%BC%AA%C1%D6%CA%A1%B3%AC%BC%B6%B4%AB%B2%A5%CA%C2%BC%FE%B3%D6%D0%F8) 2974490
 1. [黑龙江乡村大喇叭广播防疫顺口溜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%CF%E7%B4%E5%B4%F3%C0%AE%B0%C8%B9%E3%B2%A5%B7%C0%D2%DF%CB%B3%BF%DA%C1%EF) 2882621
@@ -55,6 +57,7 @@
 1. [警方通报一男子当家长面强抢小孩](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%AF%B7%BD%CD%A8%B1%A8%D2%BB%C4%D0%D7%D3%B5%B1%BC%D2%B3%A4%C3%E6%C7%BF%C7%C0%D0%A1%BA%A2) 2769919
 1. [大学生把核酸检测结果改阳性被拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D1%A7%C9%FA%B0%D1%BA%CB%CB%E1%BC%EC%B2%E2%BD%E1%B9%FB%B8%C4%D1%F4%D0%D4%B1%BB%BE%D0) 2684369
 1. [北京共有7个中风险地区均在顺义](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%B9%B2%D3%D07%B8%F6%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8%BE%F9%D4%DA%CB%B3%D2%E5) 2672972
+1. [广汽回应1000公里续航质疑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%C6%FB%BB%D8%D3%A61000%B9%AB%C0%EF%D0%F8%BA%BD%D6%CA%D2%C9) 2668041
 1. [饿了么回应骑手自焚:支付治疗费](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%F6%C1%CB%C3%B4%BB%D8%D3%A6%C6%EF%CA%D6%D7%D4%B7%D9%3A%D6%A7%B8%B6%D6%CE%C1%C6%B7%D1) 2590416
 1. [金莎 两个聪明人之间不会有爱情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F0%C9%AF%20%C1%BD%B8%F6%B4%CF%C3%F7%C8%CB%D6%AE%BC%E4%B2%BB%BB%E1%D3%D0%B0%AE%C7%E9) 2579418
 1. [老师休完产假返校被学生欢呼拥抱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CF%CA%A6%D0%DD%CD%EA%B2%FA%BC%D9%B7%B5%D0%A3%B1%BB%D1%A7%C9%FA%BB%B6%BA%F4%D3%B5%B1%A7) 2563877
@@ -63,8 +66,8 @@
 1. [长春新增确诊病例7例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%A4%B4%BA%D0%C2%D4%F6%C8%B7%D5%EF%B2%A1%C0%FD7%C0%FD) 2408604
 1. [美翻了!俄宇航员太空拍下北极光](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B7%AD%C1%CB%21%B6%ED%D3%EE%BA%BD%D4%B1%CC%AB%BF%D5%C5%C4%CF%C2%B1%B1%BC%AB%B9%E2) 2402018
 1. [北京市新冠疫苗接种人数达170万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%CA%D0%D0%C2%B9%DA%D2%DF%C3%E7%BD%D3%D6%D6%C8%CB%CA%FD%B4%EF170%CD%F2) 2327831
-1. [男子求复合未果持刀杀死前女友](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C7%F3%B8%B4%BA%CF%CE%B4%B9%FB%B3%D6%B5%B6%C9%B1%CB%C0%C7%B0%C5%AE%D3%D1) 2324303
 1. [童朝晖谈石家庄疫情拐点何时出现](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%AF%B3%AF%EA%CD%CC%B8%CA%AF%BC%D2%D7%AF%D2%DF%C7%E9%B9%D5%B5%E3%BA%CE%CA%B1%B3%F6%CF%D6) 2317948
+1. [柬埔寨首相将接种中国新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%ED%C6%D2%D5%AF%CA%D7%CF%E0%BD%AB%BD%D3%D6%D6%D6%D0%B9%FA%D0%C2%B9%DA%D2%DF%C3%E7) 2313672
 1. [吉林通化新增49名无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%CD%A8%BB%AF%D0%C2%D4%F649%C3%FB%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 2311688
 1. [美国新冠肺炎超2366万例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D0%C2%B9%DA%B7%CE%D1%D7%B3%AC2366%CD%F2%C0%FD) 2303982
 1. [河北隔离点建设现场再现中国速度](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%B8%F4%C0%EB%B5%E3%BD%A8%C9%E8%CF%D6%B3%A1%D4%D9%CF%D6%D6%D0%B9%FA%CB%D9%B6%C8) 2246357
@@ -72,6 +75,7 @@
 1. [2021中国将实现社保卡跨省通办](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2021%D6%D0%B9%FA%BD%AB%CA%B5%CF%D6%C9%E7%B1%A3%BF%A8%BF%E7%CA%A1%CD%A8%B0%EC) 2223343
 1. [新婚妻子上门做核酸检测丈夫没认出](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BB%E9%C6%DE%D7%D3%C9%CF%C3%C5%D7%F6%BA%CB%CB%E1%BC%EC%B2%E2%D5%C9%B7%F2%C3%BB%C8%CF%B3%F6) 2167734
 1. [氧气告急 巴西民众排队领购氧气](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%F5%C6%F8%B8%E6%BC%B1%20%B0%CD%CE%F7%C3%F1%D6%DA%C5%C5%B6%D3%C1%EC%B9%BA%D1%F5%C6%F8) 2164449
+1. [山东鼓励学校适当提前放假](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%B9%C4%C0%F8%D1%A7%D0%A3%CA%CA%B5%B1%CC%E1%C7%B0%B7%C5%BC%D9) 2154549
 1. [赵文卓为保姆庆生送钻石项链](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%D4%CE%C4%D7%BF%CE%AA%B1%A3%C4%B7%C7%EC%C9%FA%CB%CD%D7%EA%CA%AF%CF%EE%C1%B4) 2091864
 1. [央行再次重申房住不炒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%D0%D0%D4%D9%B4%CE%D6%D8%C9%EA%B7%BF%D7%A1%B2%BB%B3%B4) 2088693
 1. [官方回应男子驾车闯卡找局长说情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%C4%D0%D7%D3%BC%DD%B3%B5%B4%B3%BF%A8%D5%D2%BE%D6%B3%A4%CB%B5%C7%E9) 2087052
