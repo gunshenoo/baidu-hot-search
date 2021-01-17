@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-18 03:52:52
+最后更新时间 2021-01-18 04:42:05
 
 1. [吉林养生培训102人感染 官方介入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D1%F8%C9%FA%C5%E0%D1%B5102%C8%CB%B8%D0%C8%BE%20%B9%D9%B7%BD%BD%E9%C8%EB) 4919174
 1. [栖霞金矿事故被困22人全部都活着](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DC%CF%BC%BD%F0%BF%F3%CA%C2%B9%CA%B1%BB%C0%A722%C8%CB%C8%AB%B2%BF%B6%BC%BB%EE%D7%C5) 4747003
@@ -46,6 +46,7 @@
 1. [哈尔滨新增2例无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%B6%FB%B1%F5%D0%C2%D4%F62%C0%FD%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 1879877
 1. [拜登就职当日将签署多项行政令](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BE%CD%D6%B0%B5%B1%C8%D5%BD%AB%C7%A9%CA%F0%B6%E0%CF%EE%D0%D0%D5%FE%C1%EE) 1814082
 1. [山东鼓励学校适当提前放假](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%B9%C4%C0%F8%D1%A7%D0%A3%CA%CA%B5%B1%CC%E1%C7%B0%B7%C5%BC%D9) 1750589
+1. [齐齐哈尔公路客运总站全线停运](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%EB%C6%EB%B9%FE%B6%FB%B9%AB%C2%B7%BF%CD%D4%CB%D7%DC%D5%BE%C8%AB%CF%DF%CD%A3%D4%CB) 1749346
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
