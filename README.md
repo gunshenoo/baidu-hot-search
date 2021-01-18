@@ -14,10 +14,11 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-18 16:53:02
+最后更新时间 2021-01-18 17:54:59
 
 1. [吉林养生培训102人感染 官方介入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D1%F8%C9%FA%C5%E0%D1%B5102%C8%CB%B8%D0%C8%BE%20%B9%D9%B7%BD%BD%E9%C8%EB) 4919174
 1. [31省新增本土确诊93例:河北54例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF93%C0%FD%3A%BA%D3%B1%B154%C0%FD) 4908486
+1. [中方制裁涉台表现恶劣的美方官员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B7%BD%D6%C6%B2%C3%C9%E6%CC%A8%B1%ED%CF%D6%B6%F1%C1%D3%B5%C4%C3%C0%B7%BD%B9%D9%D4%B1) 4764603
 1. [栖霞金矿事故被困22人全部都活着](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DC%CF%BC%BD%F0%BF%F3%CA%C2%B9%CA%B1%BB%C0%A722%C8%CB%C8%AB%B2%BF%B6%BC%BB%EE%D7%C5) 4747003
 1. [栖霞金矿事故被困工人传回纸条](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DC%CF%BC%BD%F0%BF%F3%CA%C2%B9%CA%B1%BB%C0%A7%B9%A4%C8%CB%B4%AB%BB%D8%D6%BD%CC%F5) 4736689
 1. [河北隆尧全县居民居家隔离](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%C2%A1%D2%A2%C8%AB%CF%D8%BE%D3%C3%F1%BE%D3%BC%D2%B8%F4%C0%EB) 4722614
@@ -27,12 +28,14 @@
 1. [山东金矿事故受困者此前喝泥水维生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%BD%F0%BF%F3%CA%C2%B9%CA%CA%DC%C0%A7%D5%DF%B4%CB%C7%B0%BA%C8%C4%E0%CB%AE%CE%AC%C9%FA) 4480458
 1. [韩国网红Hamzy被公司解约](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA%CD%F8%BA%ECHamzy%B1%BB%B9%AB%CB%BE%BD%E2%D4%BC) 4420527
 1. [2.5万美军到位 华盛顿像"武装营地"](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2.5%CD%F2%C3%C0%BE%FC%B5%BD%CE%BB%20%BB%AA%CA%A2%B6%D9%CF%F1%22%CE%E4%D7%B0%D3%AA%B5%D8%22) 4410923
+1. [石家庄新增14例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F614%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4281625
 1. [北京确诊6岁男童曾在小饭桌托管](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%C8%B7%D5%EF6%CB%EA%C4%D0%CD%AF%D4%F8%D4%DA%D0%A1%B7%B9%D7%C0%CD%D0%B9%DC) 4265809
 1. [石家庄52例确诊详情:含多名小学生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF52%C0%FD%C8%B7%D5%EF%CF%EA%C7%E9%3A%BA%AC%B6%E0%C3%FB%D0%A1%D1%A7%C9%FA) 4256541
 1. [吉林新增30例本地确诊 17例无症状](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D0%C2%D4%F630%C0%FD%B1%BE%B5%D8%C8%B7%D5%EF%2017%C0%FD%CE%DE%D6%A2%D7%B4) 4213134
 1. [四川高校教授跳楼自尽 曾举报官员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%C4%B4%A8%B8%DF%D0%A3%BD%CC%CA%DA%CC%F8%C2%A5%D7%D4%BE%A1%20%D4%F8%BE%D9%B1%A8%B9%D9%D4%B1) 4172314
 1. [两中国人靖国神社烧战犯牌位获缓刑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%BD%D6%D0%B9%FA%C8%CB%BE%B8%B9%FA%C9%F1%C9%E7%C9%D5%D5%BD%B7%B8%C5%C6%CE%BB%BB%F1%BB%BA%D0%CC) 4116506
 1. [特朗普政府:停止英特尔向华为供货](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%D5%FE%B8%AE%3A%CD%A3%D6%B9%D3%A2%CC%D8%B6%FB%CF%F2%BB%AA%CE%AA%B9%A9%BB%F5) 4107562
+1. [北京一新增确诊病例在报社工作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D2%BB%D0%C2%D4%F6%C8%B7%D5%EF%B2%A1%C0%FD%D4%DA%B1%A8%C9%E7%B9%A4%D7%F7) 3987156
 1. [石家庄新乐市长寿街道升为高风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%C0%D6%CA%D0%B3%A4%CA%D9%BD%D6%B5%C0%C9%FD%CE%AA%B8%DF%B7%E7%CF%D5) 3972428
 1. [林珊珊大白离婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%D6%C9%BA%C9%BA%B4%F3%B0%D7%C0%EB%BB%E9) 3963797
 1. [王俊凯画AE86为周杰伦庆生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%BF%A1%BF%AD%BB%ADAE86%CE%AA%D6%DC%BD%DC%C2%D7%C7%EC%C9%FA) 3923376
@@ -57,6 +60,7 @@
 1. [牛羊肉价格每公斤超74元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%D1%F2%C8%E2%BC%DB%B8%F1%C3%BF%B9%AB%BD%EF%B3%AC74%D4%AA) 3200924
 1. [北京新增2例本地确诊 在大兴区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F62%C0%FD%B1%BE%B5%D8%C8%B7%D5%EF%20%D4%DA%B4%F3%D0%CB%C7%F8) 3088891
 1. [河北违规操办婚丧嫁娶将追责](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%CE%A5%B9%E6%B2%D9%B0%EC%BB%E9%C9%A5%BC%DE%C8%A2%BD%AB%D7%B7%D4%F0) 3079713
+1. [女子回应用苹果手机被男子谩骂](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%BB%D8%D3%A6%D3%C3%C6%BB%B9%FB%CA%D6%BB%FA%B1%BB%C4%D0%D7%D3%C3%A1%C2%EE) 2998346
 1. [特朗普被曝要求亲友连夜离开白宫](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B1%BB%C6%D8%D2%AA%C7%F3%C7%D7%D3%D1%C1%AC%D2%B9%C0%EB%BF%AA%B0%D7%B9%AC) 2980780
 1. [特斯拉首任中国区总经理郑顺景离世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CA%D7%C8%CE%D6%D0%B9%FA%C7%F8%D7%DC%BE%AD%C0%ED%D6%A3%CB%B3%BE%B0%C0%EB%CA%C0) 2950383
 1. [梅西染红巴萨丢西超杯 国米胜尤文](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%B7%CE%F7%C8%BE%BA%EC%B0%CD%C8%F8%B6%AA%CE%F7%B3%AC%B1%AD%20%B9%FA%C3%D7%CA%A4%D3%C8%CE%C4) 2884345
@@ -93,8 +97,8 @@
 1. [检察机关提前介入健康码演示APP案](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%EC%B2%EC%BB%FA%B9%D8%CC%E1%C7%B0%BD%E9%C8%EB%BD%A1%BF%B5%C2%EB%D1%DD%CA%BEAPP%B0%B8) 1993787
 1. [队长踹站岗消防员让他去陪女友](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%D3%B3%A4%F5%DF%D5%BE%B8%DA%CF%FB%B7%C0%D4%B1%C8%C3%CB%FB%C8%A5%C5%E3%C5%AE%D3%D1) 1948060
 1. [饿了么回应骑手自焚:支付治疗费](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%F6%C1%CB%C3%B4%BB%D8%D3%A6%C6%EF%CA%D6%D7%D4%B7%D9%3A%D6%A7%B8%B6%D6%CE%C1%C6%B7%D1) 1924005
+1. [吉林通化14地升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%CD%A8%BB%AF14%B5%D8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 1886847
 1. [哈尔滨新增2例无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%B6%FB%B1%F5%D0%C2%D4%F62%C0%FD%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 1879877
-1. [吉林通化14地升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%CD%A8%BB%AF14%B5%D8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 1838676
 1. [齐齐哈尔公路客运总站全线停运](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%EB%C6%EB%B9%FE%B6%FB%B9%AB%C2%B7%BF%CD%D4%CB%D7%DC%D5%BE%C8%AB%CF%DF%CD%A3%D4%CB) 1749346
 <!-- Rank End -->
 
