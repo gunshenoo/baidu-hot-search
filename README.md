@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-20 22:59:04
+最后更新时间 2021-01-20 23:46:40
 
 1. [31省区市新增确诊103例 本土88例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F6%C8%B7%D5%EF103%C0%FD%20%B1%BE%CD%C188%C0%FD) 4919965
 1. [春节返乡需持7日内核酸阴性证明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B7%B5%CF%E7%D0%E8%B3%D67%C8%D5%C4%DA%BA%CB%CB%E1%D2%F5%D0%D4%D6%A4%C3%F7) 4915503
@@ -43,6 +43,7 @@
 1. [被掌掴秘书长妻子遭停职?官方辟谣](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%BB%D5%C6%DE%E2%C3%D8%CA%E9%B3%A4%C6%DE%D7%D3%D4%E2%CD%A3%D6%B0%3F%B9%D9%B7%BD%B1%D9%D2%A5) 3967588
 1. [北京大兴一地调整为高风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%B4%F3%D0%CB%D2%BB%B5%D8%B5%F7%D5%FB%CE%AA%B8%DF%B7%E7%CF%D5%B5%D8%C7%F8) 3949271
 1. [薛之谦前女友李雨桐宣布当妈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%A6%D6%AE%C7%AB%C7%B0%C5%AE%D3%D1%C0%EE%D3%EA%CD%A9%D0%FB%B2%BC%B5%B1%C2%E8) 3946154
+1. [山东栖霞金矿事故已致1人遇难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%C6%DC%CF%BC%BD%F0%BF%F3%CA%C2%B9%CA%D2%D1%D6%C21%C8%CB%D3%F6%C4%D1) 3916752
 1. [疑似张恒前女友发文:还好跑得够早](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%C9%CB%C6%D5%C5%BA%E3%C7%B0%C5%AE%D3%D1%B7%A2%CE%C4%3A%BB%B9%BA%C3%C5%DC%B5%C3%B9%BB%D4%E7) 3830533
 1. [郑爽风波后首次露面](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%A3%CB%AC%B7%E7%B2%A8%BA%F3%CA%D7%B4%CE%C2%B6%C3%E6) 3828723
 1. [外媒:伊朗将制裁特朗普及蓬佩奥](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C3%BD%3A%D2%C1%C0%CA%BD%AB%D6%C6%B2%C3%CC%D8%C0%CA%C6%D5%BC%B0%C5%EE%C5%E5%B0%C2) 3811170
@@ -54,6 +55,7 @@
 1. [中疾控建议外出就餐不超过两小时](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%B2%BF%D8%BD%A8%D2%E9%CD%E2%B3%F6%BE%CD%B2%CD%B2%BB%B3%AC%B9%FD%C1%BD%D0%A1%CA%B1) 3567088
 1. [栖霞金矿事故救援进展:1人伤势危重](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DC%CF%BC%BD%F0%BF%F3%CA%C2%B9%CA%BE%C8%D4%AE%BD%F8%D5%B9%3A1%C8%CB%C9%CB%CA%C6%CE%A3%D6%D8) 3565402
 1. [特朗普:我将以某种形式回归](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%3A%CE%D2%BD%AB%D2%D4%C4%B3%D6%D6%D0%CE%CA%BD%BB%D8%B9%E9) 3546141
+1. [特朗普离开白宫前给拜登留了字条](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%C0%EB%BF%AA%B0%D7%B9%AC%C7%B0%B8%F8%B0%DD%B5%C7%C1%F4%C1%CB%D7%D6%CC%F5) 3519719
 1. [中疾控:低风险地区倡导在家就餐](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%B2%BF%D8%3A%B5%CD%B7%E7%CF%D5%B5%D8%C7%F8%B3%AB%B5%BC%D4%DA%BC%D2%BE%CD%B2%CD) 3448024
 1. [拜登上台后将撤销特朗普多项政策](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%C9%CF%CC%A8%BA%F3%BD%AB%B3%B7%CF%FA%CC%D8%C0%CA%C6%D5%B6%E0%CF%EE%D5%FE%B2%DF) 3445364
 1. [拜登就职典礼规模大幅缩水](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BE%CD%D6%B0%B5%E4%C0%F1%B9%E6%C4%A3%B4%F3%B7%F9%CB%F5%CB%AE) 3440613
