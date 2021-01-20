@@ -14,11 +14,12 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-20 19:51:58
+最后更新时间 2021-01-20 20:51:41
 
 1. [31省区市新增确诊103例 本土88例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F6%C8%B7%D5%EF103%C0%FD%20%B1%BE%CD%C188%C0%FD) 4919965
 1. [石家庄新增6例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F66%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4913181
 1. [春节返乡核酸检测费用需自付](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B7%B5%CF%E7%BA%CB%CB%E1%BC%EC%B2%E2%B7%D1%D3%C3%D0%E8%D7%D4%B8%B6) 4890498
+1. [春节返乡需持7日内核酸阴性证明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B7%B5%CF%E7%D0%E8%B3%D67%C8%D5%C4%DA%BA%CB%CB%E1%D2%F5%D0%D4%D6%A4%C3%F7) 4797972
 1. [近一周全国新增本土确诊病例757例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%FC%D2%BB%D6%DC%C8%AB%B9%FA%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD757%C0%FD) 4774576
 1. [春节返乡须持7日内核酸阴性证明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B7%B5%CF%E7%D0%EB%B3%D67%C8%D5%C4%DA%BA%CB%CB%E1%D2%F5%D0%D4%D6%A4%C3%F7) 4751432
 1. [特朗普发表告别演讲:祝新政府成功](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B7%A2%B1%ED%B8%E6%B1%F0%D1%DD%BD%B2%3A%D7%A3%D0%C2%D5%FE%B8%AE%B3%C9%B9%A6) 4581595
@@ -30,6 +31,7 @@
 1. [1传139!吉林"超级传播链"再延长](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=1%B4%AB139%21%BC%AA%C1%D6%22%B3%AC%BC%B6%B4%AB%B2%A5%C1%B4%22%D4%D9%D1%D3%B3%A4) 4260612
 1. [南医大女生被杀案二审维持原判](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%D2%BD%B4%F3%C5%AE%C9%FA%B1%BB%C9%B1%B0%B8%B6%FE%C9%F3%CE%AC%B3%D6%D4%AD%C5%D0) 4260053
 1. [华春莹回应是否"怀念"蓬佩奥](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%B4%BA%D3%A8%BB%D8%D3%A6%CA%C7%B7%F1%22%BB%B3%C4%EE%22%C5%EE%C5%E5%B0%C2) 4240942
+1. [外媒:拜登上任第一天将重返WHO](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C3%BD%3A%B0%DD%B5%C7%C9%CF%C8%CE%B5%DA%D2%BB%CC%EC%BD%AB%D6%D8%B7%B5WHO) 4160705
 1. [中国已超1500万人接种新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D2%D1%B3%AC1500%CD%F2%C8%CB%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E7) 4119817
 1. [中国成功发射天通一号03星](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%B3%C9%B9%A6%B7%A2%C9%E4%CC%EC%CD%A8%D2%BB%BA%C503%D0%C7) 4117168
 1. [郑爽爸爸骂张恒:极品渣男](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%A3%CB%AC%B0%D6%B0%D6%C2%EE%D5%C5%BA%E3%3A%BC%AB%C6%B7%D4%FC%C4%D0) 4111491
@@ -82,6 +84,7 @@
 1. [哈尔滨新增4例无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%B6%FB%B1%F5%D0%C2%D4%F64%C0%FD%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 2496788
 1. [特斯拉首次回应Model Y降价](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CA%D7%B4%CE%BB%D8%D3%A6Model%20Y%BD%B5%BC%DB) 2412727
 1. [女童模仿熊出没情节坠楼案审结](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%CD%AF%C4%A3%B7%C2%D0%DC%B3%F6%C3%BB%C7%E9%BD%DA%D7%B9%C2%A5%B0%B8%C9%F3%BD%E1) 2409400
+1. [哈尔滨新增1例确诊 21例无症状](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%B6%FB%B1%F5%D0%C2%D4%F61%C0%FD%C8%B7%D5%EF%2021%C0%FD%CE%DE%D6%A2%D7%B4) 2352902
 1. [北京:大兴局部聚集性疫情形势严峻](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%3A%B4%F3%D0%CB%BE%D6%B2%BF%BE%DB%BC%AF%D0%D4%D2%DF%C7%E9%D0%CE%CA%C6%D1%CF%BE%FE) 2328282
 1. [疑似郑爽小号发文:大不了鱼死网破](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%C9%CB%C6%D6%A3%CB%AC%D0%A1%BA%C5%B7%A2%CE%C4%3A%B4%F3%B2%BB%C1%CB%D3%E3%CB%C0%CD%F8%C6%C6) 2325071
 1. [翻越栅栏进出京2人被当场抓获](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%AD%D4%BD%D5%A4%C0%B8%BD%F8%B3%F6%BE%A92%C8%CB%B1%BB%B5%B1%B3%A1%D7%A5%BB%F1) 2246792
