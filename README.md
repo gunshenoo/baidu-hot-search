@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-21 22:58:50
+最后更新时间 2021-01-21 23:44:03
 
 1. [石家庄新增14例本土确诊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AF%BC%D2%D7%AF%D0%C2%D4%F614%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF) 4920451
 1. [31省区市新增确诊144例 本土126例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F6%C8%B7%D5%EF144%C0%FD%20%B1%BE%CD%C1126%C0%FD) 4898558
@@ -117,6 +117,7 @@
 1. [美国重返巴黎气候协定和世卫组织](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D6%D8%B7%B5%B0%CD%C0%E8%C6%F8%BA%F2%D0%AD%B6%A8%BA%CD%CA%C0%CE%C0%D7%E9%D6%AF) 1848175
 1. [特斯拉首次回应Model Y降价](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CA%D7%B4%CE%BB%D8%D3%A6Model%20Y%BD%B5%BC%DB) 1827988
 1. [男子买25平米房霸占一层停车场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C2%F225%C6%BD%C3%D7%B7%BF%B0%D4%D5%BC%D2%BB%B2%E3%CD%A3%B3%B5%B3%A1) 1797682
+1. [苹果降低iPhone12 mini产量](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%BB%B9%FB%BD%B5%B5%CDiPhone12%20mini%B2%FA%C1%BF) 1756483
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
