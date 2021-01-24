@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-24 18:55:26
+最后更新时间 2021-01-24 19:48:50
 
 1. [栖霞已发现被困矿工全部升井](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DC%CF%BC%D2%D1%B7%A2%CF%D6%B1%BB%C0%A7%BF%F3%B9%A4%C8%AB%B2%BF%C9%FD%BE%AE) 4902128
 1. [31省份新增确诊80例 本土65例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F6%C8%B7%D5%EF80%C0%FD%20%B1%BE%CD%C165%C0%FD) 4890467
@@ -32,10 +32,10 @@
 1. [通化副市长就物资配送不及时道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%A8%BB%AF%B8%B1%CA%D0%B3%A4%BE%CD%CE%EF%D7%CA%C5%E4%CB%CD%B2%BB%BC%B0%CA%B1%B5%C0%C7%B8) 4388081
 1. [山东金矿被困人员恢复正常饮食](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%BD%F0%BF%F3%B1%BB%C0%A7%C8%CB%D4%B1%BB%D6%B8%B4%D5%FD%B3%A3%D2%FB%CA%B3) 4381881
 1. [拜登就职当天被晾在白宫门外?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BE%CD%D6%B0%B5%B1%CC%EC%B1%BB%C1%C0%D4%DA%B0%D7%B9%AC%C3%C5%CD%E2%3F) 4353411
+1. [新华社评只提轨迹不提人:值得提倡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BB%AA%C9%E7%C6%C0%D6%BB%CC%E1%B9%EC%BC%A3%B2%BB%CC%E1%C8%CB%3A%D6%B5%B5%C3%CC%E1%B3%AB) 4282792
 1. [吉林省暂停人员聚集活动](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%CA%A1%D4%DD%CD%A3%C8%CB%D4%B1%BE%DB%BC%AF%BB%EE%B6%AF) 4234498
 1. [北京新增病例轨迹:涉及大兴机场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F6%B2%A1%C0%FD%B9%EC%BC%A3%3A%C9%E6%BC%B0%B4%F3%D0%CB%BB%FA%B3%A1) 4228515
 1. [吴尊友回应车厘子等进口水果怎么吃](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%D7%F0%D3%D1%BB%D8%D3%A6%B3%B5%C0%E5%D7%D3%B5%C8%BD%F8%BF%DA%CB%AE%B9%FB%D4%F5%C3%B4%B3%D4) 4092483
-1. [新华社评只提轨迹不提人:值得提倡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BB%AA%C9%E7%C6%C0%D6%BB%CC%E1%B9%EC%BC%A3%B2%BB%CC%E1%C8%CB%3A%D6%B5%B5%C3%CC%E1%B3%AB) 4086291
 1. [长沙女生乘网约车后失联 滴滴回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%A4%C9%B3%C5%AE%C9%FA%B3%CB%CD%F8%D4%BC%B3%B5%BA%F3%CA%A7%C1%AA%20%B5%CE%B5%CE%BB%D8%D3%A6) 4080517
 1. [防疫不力 吉林通化14名干部被处分](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%C0%D2%DF%B2%BB%C1%A6%20%BC%AA%C1%D6%CD%A8%BB%AF14%C3%FB%B8%C9%B2%BF%B1%BB%B4%A6%B7%D6) 3937699
 1. [上海黄浦区贵西小区升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%BB%C6%C6%D6%C7%F8%B9%F3%CE%F7%D0%A1%C7%F8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 3851000
@@ -71,6 +71,7 @@
 1. [德国医院发生变异毒株聚集性感染](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%C2%B9%FA%D2%BD%D4%BA%B7%A2%C9%FA%B1%E4%D2%EC%B6%BE%D6%EA%BE%DB%BC%AF%D0%D4%B8%D0%C8%BE) 2675155
 1. [大兴有宠物家庭可留一人居家隔离](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D0%CB%D3%D0%B3%E8%CE%EF%BC%D2%CD%A5%BF%C9%C1%F4%D2%BB%C8%CB%BE%D3%BC%D2%B8%F4%C0%EB) 2664753
 1. [新冠核酸检测为何增加肛拭子采样](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%B9%DA%BA%CB%CB%E1%BC%EC%B2%E2%CE%AA%BA%CE%D4%F6%BC%D3%B8%D8%CA%C3%D7%D3%B2%C9%D1%F9) 2660988
+1. [北京西城一人初筛阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%CE%F7%B3%C7%D2%BB%C8%CB%B3%F5%C9%B8%D1%F4%D0%D4) 2600814
 1. [杭州一企业员工出境3天后核检阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%BC%D6%DD%D2%BB%C6%F3%D2%B5%D4%B1%B9%A4%B3%F6%BE%B33%CC%EC%BA%F3%BA%CB%BC%EC%D1%F4%D0%D4) 2581524
 1. [上海人均生产总值突破2.3万美元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%C8%CB%BE%F9%C9%FA%B2%FA%D7%DC%D6%B5%CD%BB%C6%C62.3%CD%F2%C3%C0%D4%AA) 2571487
 1. [剧本杀成90后00后社交新潮流](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%E7%B1%BE%C9%B1%B3%C990%BA%F300%BA%F3%C9%E7%BD%BB%D0%C2%B3%B1%C1%F7) 2567853
@@ -97,6 +98,7 @@
 1. [解放军13架军机进入台空域](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%E2%B7%C5%BE%FC13%BC%DC%BE%FC%BB%FA%BD%F8%C8%EB%CC%A8%BF%D5%D3%F2) 1863443
 1. [上海友谊路一小区升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%D3%D1%D2%EA%C2%B7%D2%BB%D0%A1%C7%F8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 1803495
 1. [北京人均GDP约2.4万美元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%C8%CB%BE%F9GDP%D4%BC2.4%CD%F2%C3%C0%D4%AA) 1746005
+1. [上海今年将推进数字人民币试点](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%BD%F1%C4%EA%BD%AB%CD%C6%BD%F8%CA%FD%D7%D6%C8%CB%C3%F1%B1%D2%CA%D4%B5%E3) 1696044
 1. [上海近期不建议学生参加线下培训](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%BD%FC%C6%DA%B2%BB%BD%A8%D2%E9%D1%A7%C9%FA%B2%CE%BC%D3%CF%DF%CF%C2%C5%E0%D1%B5) 1684895
 <!-- Rank End -->
 
