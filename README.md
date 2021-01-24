@@ -14,11 +14,12 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-24 12:55:44
+最后更新时间 2021-01-24 13:55:54
 
 1. [31省份新增确诊80例 本土65例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F6%C8%B7%D5%EF80%C0%FD%20%B1%BE%CD%C165%C0%FD) 4890467
 1. [深圳一隔离酒店服务人员核酸阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%D2%BB%B8%F4%C0%EB%BE%C6%B5%EA%B7%FE%CE%F1%C8%CB%D4%B1%BA%CB%CB%E1%D1%F4%D0%D4) 4876168
 1. [山东金矿爆炸事故一名矿工成功升井](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%BD%F0%BF%F3%B1%AC%D5%A8%CA%C2%B9%CA%D2%BB%C3%FB%BF%F3%B9%A4%B3%C9%B9%A6%C9%FD%BE%AE) 4839180
+1. [直击:山东栖霞部分矿工陆续升井](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%BB%F7%3A%C9%BD%B6%AB%C6%DC%CF%BC%B2%BF%B7%D6%BF%F3%B9%A4%C2%BD%D0%F8%C9%FD%BE%AE) 4821048
 1. [张伯礼称今冬疫情有望3月初结束](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B2%AE%C0%F1%B3%C6%BD%F1%B6%AC%D2%DF%C7%E9%D3%D0%CD%FB3%D4%C2%B3%F5%BD%E1%CA%F8) 4719301
 1. [美军"罗斯福"号航母23日进入南海](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%BE%FC%22%C2%DE%CB%B9%B8%A3%22%BA%C5%BA%BD%C4%B823%C8%D5%BD%F8%C8%EB%C4%CF%BA%A3) 4705502
 1. [甘肃成立调查组调查敦煌防护林被毁](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%CA%CB%E0%B3%C9%C1%A2%B5%F7%B2%E9%D7%E9%B5%F7%B2%E9%B6%D8%BB%CD%B7%C0%BB%A4%C1%D6%B1%BB%BB%D9) 4540809
@@ -32,6 +33,7 @@
 1. [长沙女生乘网约车后失联 滴滴回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%A4%C9%B3%C5%AE%C9%FA%B3%CB%CD%F8%D4%BC%B3%B5%BA%F3%CA%A7%C1%AA%20%B5%CE%B5%CE%BB%D8%D3%A6) 4080517
 1. [通化副市长就物资配送不及时道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%A8%BB%AF%B8%B1%CA%D0%B3%A4%BE%CD%CE%EF%D7%CA%C5%E4%CB%CD%B2%BB%BC%B0%CA%B1%B5%C0%C7%B8) 4049565
 1. [防疫不力 吉林通化14名干部被处分](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%C0%D2%DF%B2%BB%C1%A6%20%BC%AA%C1%D6%CD%A8%BB%AF14%C3%FB%B8%C9%B2%BF%B1%BB%B4%A6%B7%D6) 3937699
+1. [医院拒诊中高风险地区患者被约谈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BD%D4%BA%BE%DC%D5%EF%D6%D0%B8%DF%B7%E7%CF%D5%B5%D8%C7%F8%BB%BC%D5%DF%B1%BB%D4%BC%CC%B8) 3893187
 1. [黑龙江新增本土确诊病例29例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD29%C0%FD) 3811023
 1. [3岁男童被拴门绳勒脖吊挂致昏迷](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3%CB%EA%C4%D0%CD%AF%B1%BB%CB%A9%C3%C5%C9%FE%C0%D5%B2%B1%B5%F5%B9%D2%D6%C2%BB%E8%C3%D4) 3799879
 1. [吉林新增确诊12例 无症状29例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%D0%C2%D4%F6%C8%B7%D5%EF12%C0%FD%20%CE%DE%D6%A2%D7%B429%C0%FD) 3775191
@@ -59,16 +61,15 @@
 1. [2NE1四人罕见合体](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2NE1%CB%C4%C8%CB%BA%B1%BC%FB%BA%CF%CC%E5) 2391249
 1. [杭州一企业员工出境3天后核检阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%BC%D6%DD%D2%BB%C6%F3%D2%B5%D4%B1%B9%A4%B3%F6%BE%B33%CC%EC%BA%F3%BA%CB%BC%EC%D1%F4%D0%D4) 2375713
 1. [特朗普离任后首次发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%C0%EB%C8%CE%BA%F3%CA%D7%B4%CE%B7%A2%C9%F9) 2307556
-1. [医院拒诊中高风险地区患者被约谈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BD%D4%BA%BE%DC%D5%EF%D6%D0%B8%DF%B7%E7%CF%D5%B5%D8%C7%F8%BB%BC%D5%DF%B1%BB%D4%BC%CC%B8) 2292563
+1. [95后语文老师给学生写文言文评语](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=95%BA%F3%D3%EF%CE%C4%C0%CF%CA%A6%B8%F8%D1%A7%C9%FA%D0%B4%CE%C4%D1%D4%CE%C4%C6%C0%D3%EF) 2281471
 1. [郭晶晶闺蜜去世18天后下葬](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%F9%BE%A7%BE%A7%B9%EB%C3%DB%C8%A5%CA%C018%CC%EC%BA%F3%CF%C2%D4%E1) 2226791
-1. [95后语文老师给学生写文言文评语](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=95%BA%F3%D3%EF%CE%C4%C0%CF%CA%A6%B8%F8%D1%A7%C9%FA%D0%B4%CE%C4%D1%D4%CE%C4%C6%C0%D3%EF) 2155155
+1. [B站回应UP主死亡事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=B%D5%BE%BB%D8%D3%A6UP%D6%F7%CB%C0%CD%F6%CA%C2%BC%FE) 2201620
 1. [美国开出10亿美元大奖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%BF%AA%B3%F610%D2%DA%C3%C0%D4%AA%B4%F3%BD%B1) 2134892
+1. [黄子韬威胁要拉黑朋友反被拉黑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%C6%D7%D3%E8%BA%CD%FE%D0%B2%D2%AA%C0%AD%BA%DA%C5%F3%D3%D1%B7%B4%B1%BB%C0%AD%BA%DA) 2124563
 1. [李易峰招手给小女孩签名](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%D2%D7%B7%E5%D5%D0%CA%D6%B8%F8%D0%A1%C5%AE%BA%A2%C7%A9%C3%FB) 2073644
 1. [新总统可获10万美元装修白宫](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%D7%DC%CD%B3%BF%C9%BB%F110%CD%F2%C3%C0%D4%AA%D7%B0%D0%DE%B0%D7%B9%AC) 2006934
-1. [B站回应UP主死亡事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=B%D5%BE%BB%D8%D3%A6UP%D6%F7%CB%C0%CD%F6%CA%C2%BC%FE) 1985887
 1. [日本考虑东京奥运无观众方案](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%BF%BC%C2%C7%B6%AB%BE%A9%B0%C2%D4%CB%CE%DE%B9%DB%D6%DA%B7%BD%B0%B8) 1936691
 1. [网易北京:全员核酸检测为阴性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F8%D2%D7%B1%B1%BE%A9%3A%C8%AB%D4%B1%BA%CB%CB%E1%BC%EC%B2%E2%CE%AA%D2%F5%D0%D4) 1918482
-1. [黄子韬威胁要拉黑朋友反被拉黑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%C6%D7%D3%E8%BA%CD%FE%D0%B2%D2%AA%C0%AD%BA%DA%C5%F3%D3%D1%B7%B4%B1%BB%C0%AD%BA%DA) 1916381
 1. [国家发改委回应菜价上涨](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%BC%D2%B7%A2%B8%C4%CE%AF%BB%D8%D3%A6%B2%CB%BC%DB%C9%CF%D5%C7) 1874955
 1. [解放军13架军机进入台空域](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%E2%B7%C5%BE%FC13%BC%DC%BE%FC%BB%FA%BD%F8%C8%EB%CC%A8%BF%D5%D3%F2) 1863443
 1. [上海友谊路一小区升为中风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%D3%D1%D2%EA%C2%B7%D2%BB%D0%A1%C7%F8%C9%FD%CE%AA%D6%D0%B7%E7%CF%D5) 1803495
