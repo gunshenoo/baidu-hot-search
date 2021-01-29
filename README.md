@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-01-29 19:22:54
+最后更新时间 2021-01-29 20:31:07
 
 1. [国防部:"台独"就意味着战争](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%B7%C0%B2%BF%3A%22%CC%A8%B6%C0%22%BE%CD%D2%E2%CE%B6%D7%C5%D5%BD%D5%F9) 4911286
 1. [31省区市新增确诊52例 本土36例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F6%C8%B7%D5%EF52%C0%FD%20%B1%BE%CD%C136%C0%FD) 4897773
@@ -49,6 +49,7 @@
 1. [印媒:印度宣布"成功遏制疫情"](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C3%BD%3A%D3%A1%B6%C8%D0%FB%B2%BC%22%B3%C9%B9%A6%B6%F4%D6%C6%D2%DF%C7%E9%22) 3429823
 1. [联合国秘书长接种第一剂新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%AA%BA%CF%B9%FA%C3%D8%CA%E9%B3%A4%BD%D3%D6%D6%B5%DA%D2%BB%BC%C1%D0%C2%B9%DA%D2%DF%C3%E7) 3406889
 1. [马斯克发声:做空是一场骗局](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%CB%B9%BF%CB%B7%A2%C9%F9%3A%D7%F6%BF%D5%CA%C7%D2%BB%B3%A1%C6%AD%BE%D6) 3309779
+1. [多地核酸检测价格降至80元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%B5%D8%BA%CB%CB%E1%BC%EC%B2%E2%BC%DB%B8%F1%BD%B5%D6%C180%D4%AA) 3225270
 1. [医院主任贪百万被抓问这么严重吗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BD%D4%BA%D6%F7%C8%CE%CC%B0%B0%D9%CD%F2%B1%BB%D7%A5%CE%CA%D5%E2%C3%B4%D1%CF%D6%D8%C2%F0) 3202750
 1. [中纪委披露安徽太和县骗保事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%CD%CE%AF%C5%FB%C2%B6%B0%B2%BB%D5%CC%AB%BA%CD%CF%D8%C6%AD%B1%A3%CA%C2%BC%FE) 3193937
 1. [新疆九旬老人怒斥蓬佩奥是大骗子](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BD%AE%BE%C5%D1%AE%C0%CF%C8%CB%C5%AD%B3%E2%C5%EE%C5%E5%B0%C2%CA%C7%B4%F3%C6%AD%D7%D3) 3187503
