@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-01 04:23:09
+最后更新时间 2021-02-01 05:19:45
 
 1. [官方:返乡防疫盲目加码就是懒政](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%3A%B7%B5%CF%E7%B7%C0%D2%DF%C3%A4%C4%BF%BC%D3%C2%EB%BE%CD%CA%C7%C0%C1%D5%FE) 4809990
 1. [河北因强力干预避免了12万人感染](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%B1%B1%D2%F2%C7%BF%C1%A6%B8%C9%D4%A4%B1%DC%C3%E2%C1%CB12%CD%F2%C8%CB%B8%D0%C8%BE) 4641640
