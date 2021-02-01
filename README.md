@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-02 05:22:39
+最后更新时间 2021-02-02 06:25:28
 
 1. [驻缅大使馆紧急提醒在缅中国公民](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%A4%C3%E5%B4%F3%CA%B9%B9%DD%BD%F4%BC%B1%CC%E1%D0%D1%D4%DA%C3%E5%D6%D0%B9%FA%B9%AB%C3%F1) 4918744
 1. [韩国高速车祸 中国公民6死4伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA%B8%DF%CB%D9%B3%B5%BB%F6%20%D6%D0%B9%FA%B9%AB%C3%F16%CB%C04%C9%CB) 4580457
