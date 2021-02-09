@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-09 17:20:02
+最后更新时间 2021-02-09 18:20:41
 
 1. [31省新增确诊14例 均为境外输入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F6%C8%B7%D5%EF14%C0%FD%20%BE%F9%CE%AA%BE%B3%CD%E2%CA%E4%C8%EB) 4917582
 1. [张文宏称去年防同事今年防自己](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%CE%C4%BA%EA%B3%C6%C8%A5%C4%EA%B7%C0%CD%AC%CA%C2%BD%F1%C4%EA%B7%C0%D7%D4%BC%BA) 4902745
@@ -74,20 +74,23 @@
 1. [北京两大机场通认全国健康码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%C1%BD%B4%F3%BB%FA%B3%A1%CD%A8%C8%CF%C8%AB%B9%FA%BD%A1%BF%B5%C2%EB) 2315014
 1. [消防员吃到妈妈寄来的家乡菜泪崩](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%FB%B7%C0%D4%B1%B3%D4%B5%BD%C2%E8%C2%E8%BC%C4%C0%B4%B5%C4%BC%D2%CF%E7%B2%CB%C0%E1%B1%C0) 2244900
 1. [2020年全国姓名报告出炉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C4%EA%C8%AB%B9%FA%D0%D5%C3%FB%B1%A8%B8%E6%B3%F6%C2%AF) 2233989
+1. [香港终院撤销黎智英保释](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%E3%B8%DB%D6%D5%D4%BA%B3%B7%CF%FA%C0%E8%D6%C7%D3%A2%B1%A3%CA%CD) 2163719
 1. [去年超15亿只废弃口罩流入海洋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%A5%C4%EA%B3%AC15%D2%DA%D6%BB%B7%CF%C6%FA%BF%DA%D5%D6%C1%F7%C8%EB%BA%A3%D1%F3) 2155799
 1. [乘风破浪奶奶团平均年龄90岁](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%CB%B7%E7%C6%C6%C0%CB%C4%CC%C4%CC%CD%C5%C6%BD%BE%F9%C4%EA%C1%E490%CB%EA) 2089243
 1. [乐视回应Logo欠122亿:系推广行为](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%D6%CA%D3%BB%D8%D3%A6Logo%C7%B7122%D2%DA%3A%CF%B5%CD%C6%B9%E3%D0%D0%CE%AA) 2080346
-1. [香港终院撤销黎智英保释](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%E3%B8%DB%D6%D5%D4%BA%B3%B7%CF%FA%C0%E8%D6%C7%D3%A2%B1%A3%CA%CD) 2016119
 1. [澳门特首贺一诚接种新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%C4%C3%C5%CC%D8%CA%D7%BA%D8%D2%BB%B3%CF%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E7) 2011973
 1. [新华社记者调查长江口建空城](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BB%AA%C9%E7%BC%C7%D5%DF%B5%F7%B2%E9%B3%A4%BD%AD%BF%DA%BD%A8%BF%D5%B3%C7) 2007534
 1. [男子反映结核类患者就医难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%B7%B4%D3%B3%BD%E1%BA%CB%C0%E0%BB%BC%D5%DF%BE%CD%D2%BD%C4%D1) 1937270
 1. [四姐妹通过监控看空巢父母日常](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%C4%BD%E3%C3%C3%CD%A8%B9%FD%BC%E0%BF%D8%BF%B4%BF%D5%B3%B2%B8%B8%C4%B8%C8%D5%B3%A3) 1914544
-1. [北京中高风险地区清零](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D6%D0%B8%DF%B7%E7%CF%D5%B5%D8%C7%F8%C7%E5%C1%E3) 1873599
+1. [北京中高风险地区清零](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D6%D0%B8%DF%B7%E7%CF%D5%B5%D8%C7%F8%C7%E5%C1%E3) 1876334
 1. [美国疫情或比官方报告严重10倍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%DF%C7%E9%BB%F2%B1%C8%B9%D9%B7%BD%B1%A8%B8%E6%D1%CF%D6%D810%B1%B6) 1847535
+1. [比特币涨破48000美元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%CC%D8%B1%D2%D5%C7%C6%C648000%C3%C0%D4%AA) 1810662
 1. [耶鲁大学26岁华裔研究生遭枪杀](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%AE%C2%B3%B4%F3%D1%A726%CB%EA%BB%AA%D2%E1%D1%D0%BE%BF%C9%FA%D4%E2%C7%B9%C9%B1) 1804034
 1. [23岁女生称被男友PUA跳楼自杀](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=23%CB%EA%C5%AE%C9%FA%B3%C6%B1%BB%C4%D0%D3%D1PUA%CC%F8%C2%A5%D7%D4%C9%B1) 1782871
+1. [鼓励实行中西医同病同效同价](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%C4%C0%F8%CA%B5%D0%D0%D6%D0%CE%F7%D2%BD%CD%AC%B2%A1%CD%AC%D0%A7%CD%AC%BC%DB) 1747289
 1. [春节档电影预售票房破5亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B5%B5%B5%E7%D3%B0%D4%A4%CA%DB%C6%B1%B7%BF%C6%C65%D2%DA) 1740893
 1. [美国超级碗现场坐3万个纸片人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%B3%AC%BC%B6%CD%EB%CF%D6%B3%A1%D7%F83%CD%F2%B8%F6%D6%BD%C6%AC%C8%CB) 1720470
+1. [武契奇再提对中国绝不吝惜感谢](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%C6%F5%C6%E6%D4%D9%CC%E1%B6%D4%D6%D0%B9%FA%BE%F8%B2%BB%C1%DF%CF%A7%B8%D0%D0%BB) 1686134
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
