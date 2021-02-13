@@ -14,9 +14,10 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-13 07:19:57
+最后更新时间 2021-02-13 08:47:17
 
 1. [牛年首日电影票房超17亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%C4%EA%CA%D7%C8%D5%B5%E7%D3%B0%C6%B1%B7%BF%B3%AC17%D2%DA) 4914640
+1. [世卫:新冠病毒未被实验室蓄意使用](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%CE%C0%3A%D0%C2%B9%DA%B2%A1%B6%BE%CE%B4%B1%BB%CA%B5%D1%E9%CA%D2%D0%EE%D2%E2%CA%B9%D3%C3) 4867307
 1. [天问一号火星捕获过程影像发布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%CE%CA%D2%BB%BA%C5%BB%F0%D0%C7%B2%B6%BB%F1%B9%FD%B3%CC%D3%B0%CF%F1%B7%A2%B2%BC) 4742628
 1. [吴亦凡在台下看李雪琴演小品](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%D2%E0%B7%B2%D4%DA%CC%A8%CF%C2%BF%B4%C0%EE%D1%A9%C7%D9%D1%DD%D0%A1%C6%B7) 4576636
 1. [全国压岁钱地图出炉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%D1%B9%CB%EA%C7%AE%B5%D8%CD%BC%B3%F6%C2%AF) 4261877
@@ -27,19 +28,24 @@
 1. [美国疫苗接种陷种族不平等境况](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%DF%C3%E7%BD%D3%D6%D6%CF%DD%D6%D6%D7%E5%B2%BB%C6%BD%B5%C8%BE%B3%BF%F6) 3441635
 1. [各地春晚看不停](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%F7%B5%D8%B4%BA%CD%ED%BF%B4%B2%BB%CD%A3) 3321178
 1. [春晚机甲牛夸王冰冰好漂亮](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%CD%ED%BB%FA%BC%D7%C5%A3%BF%E4%CD%F5%B1%F9%B1%F9%BA%C3%C6%AF%C1%C1) 3204937
+1. [中纪委关注春晚小品大扫除](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%CD%CE%AF%B9%D8%D7%A2%B4%BA%CD%ED%D0%A1%C6%B7%B4%F3%C9%A8%B3%FD) 3174070
 1. [俄罗斯已做好准备与欧盟断绝关系](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%ED%C2%DE%CB%B9%D2%D1%D7%F6%BA%C3%D7%BC%B1%B8%D3%EB%C5%B7%C3%CB%B6%CF%BE%F8%B9%D8%CF%B5) 3092764
+1. [国际奥委会回应森喜朗辞职](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%BC%CA%B0%C2%CE%AF%BB%E1%BB%D8%D3%A6%C9%AD%CF%B2%C0%CA%B4%C7%D6%B0) 3062977
 1. [苹果头戴设备或可检测食品](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%BB%B9%FB%CD%B7%B4%F7%C9%E8%B1%B8%BB%F2%BF%C9%BC%EC%B2%E2%CA%B3%C6%B7) 2880059
 1. [天问一号北京总调度是位90后](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%CE%CA%D2%BB%BA%C5%B1%B1%BE%A9%D7%DC%B5%F7%B6%C8%CA%C7%CE%BB90%BA%F3) 2779257
+1. [詹姆斯连续3期领跑MVP榜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%B2%C4%B7%CB%B9%C1%AC%D0%F83%C6%DA%C1%EC%C5%DCMVP%B0%F1) 2752490
 1. [东京奥组委主席森喜朗辞职](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AB%BE%A9%B0%C2%D7%E9%CE%AF%D6%F7%CF%AF%C9%AD%CF%B2%C0%CA%B4%C7%D6%B0) 2681983
 1. [西班牙借鉴中国设置健康码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B0%E0%D1%C0%BD%E8%BC%F8%D6%D0%B9%FA%C9%E8%D6%C3%BD%A1%BF%B5%C2%EB) 2680392
 1. [张柏芝两次选那英被拒绝](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B0%D8%D6%A5%C1%BD%B4%CE%D1%A1%C4%C7%D3%A2%B1%BB%BE%DC%BE%F8) 2588113
 1. [钟南山张伯礼张定宇拜年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D3%C4%CF%C9%BD%D5%C5%B2%AE%C0%F1%D5%C5%B6%A8%D3%EE%B0%DD%C4%EA) 2496048
 1. [郭艾伦成全明星第一阶段票王](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%F9%B0%AC%C2%D7%B3%C9%C8%AB%C3%F7%D0%C7%B5%DA%D2%BB%BD%D7%B6%CE%C6%B1%CD%F5) 2408686
+1. [多地频发儿童燃放烟花爆竹事故](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%B5%D8%C6%B5%B7%A2%B6%F9%CD%AF%C8%BC%B7%C5%D1%CC%BB%A8%B1%AC%D6%F1%CA%C2%B9%CA) 2386904
 1. [哈尔滨三个街道调整为低风险](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%B6%FB%B1%F5%C8%FD%B8%F6%BD%D6%B5%C0%B5%F7%D5%FB%CE%AA%B5%CD%B7%E7%CF%D5) 2325472
 1. [广西青秀山上万人争烧头香](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%CE%F7%C7%E0%D0%E3%C9%BD%C9%CF%CD%F2%C8%CB%D5%F9%C9%D5%CD%B7%CF%E3) 2324382
 1. [牛年只有354天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%C4%EA%D6%BB%D3%D0354%CC%EC) 2243029
 1. [春晚后台机器牛送盒饭](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%CD%ED%BA%F3%CC%A8%BB%FA%C6%F7%C5%A3%CB%CD%BA%D0%B7%B9) 2090004
 1. [网吧老板除夕夜给顾客发红包](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F8%B0%C9%C0%CF%B0%E5%B3%FD%CF%A6%D2%B9%B8%F8%B9%CB%BF%CD%B7%A2%BA%EC%B0%FC) 2016854
+1. [贺岁档电影首波口碑来了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D8%CB%EA%B5%B5%B5%E7%D3%B0%CA%D7%B2%A8%BF%DA%B1%AE%C0%B4%C1%CB) 1997430
 1. [武警开挖掘机写毛笔字新春祝福](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%BE%AF%BF%AA%CD%DA%BE%F2%BB%FA%D0%B4%C3%AB%B1%CA%D7%D6%D0%C2%B4%BA%D7%A3%B8%A3) 1946264
 1. [王源春晚彩排被小朋友塞糖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%D4%B4%B4%BA%CD%ED%B2%CA%C5%C5%B1%BB%D0%A1%C5%F3%D3%D1%C8%FB%CC%C7) 1878145
 1. [江苏锦鲤拒领百万年货大奖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%AD%CB%D5%BD%F5%C0%F0%BE%DC%C1%EC%B0%D9%CD%F2%C4%EA%BB%F5%B4%F3%BD%B1) 1812410
