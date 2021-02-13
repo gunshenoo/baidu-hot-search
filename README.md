@@ -14,18 +14,24 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-13 08:47:17
+最后更新时间 2021-02-13 09:42:44
 
 1. [牛年首日电影票房超17亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%C4%EA%CA%D7%C8%D5%B5%E7%D3%B0%C6%B1%B7%BF%B3%AC17%D2%DA) 4914640
 1. [世卫:新冠病毒未被实验室蓄意使用](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%CE%C0%3A%D0%C2%B9%DA%B2%A1%B6%BE%CE%B4%B1%BB%CA%B5%D1%E9%CA%D2%D0%EE%D2%E2%CA%B9%D3%C3) 4867307
 1. [天问一号火星捕获过程影像发布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%CE%CA%D2%BB%BA%C5%BB%F0%D0%C7%B2%B6%BB%F1%B9%FD%B3%CC%D3%B0%CF%F1%B7%A2%B2%BC) 4742628
+1. [31省区市连续6天无新增本土确诊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%C1%AC%D0%F86%CC%EC%CE%DE%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF) 4600461
 1. [吴亦凡在台下看李雪琴演小品](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%D2%E0%B7%B2%D4%DA%CC%A8%CF%C2%BF%B4%C0%EE%D1%A9%C7%D9%D1%DD%D0%A1%C6%B7) 4576636
+1. [马克龙用四国语言拜年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%BF%CB%C1%FA%D3%C3%CB%C4%B9%FA%D3%EF%D1%D4%B0%DD%C4%EA) 4439445
 1. [全国压岁钱地图出炉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%D1%B9%CB%EA%C7%AE%B5%D8%CD%BC%B3%F6%C2%AF) 4261877
 1. [消防员除夕年夜饭吃到一半出警了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%FB%B7%C0%D4%B1%B3%FD%CF%A6%C4%EA%D2%B9%B7%B9%B3%D4%B5%BD%D2%BB%B0%EB%B3%F6%BE%AF%C1%CB) 4112712
+1. [美总统拜登携夫人拍视频贺新春](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D7%DC%CD%B3%B0%DD%B5%C7%D0%AF%B7%F2%C8%CB%C5%C4%CA%D3%C6%B5%BA%D8%D0%C2%B4%BA) 3989428
 1. [朱广权段子版春节祝福](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%EC%B9%E3%C8%A8%B6%CE%D7%D3%B0%E6%B4%BA%BD%DA%D7%A3%B8%A3) 3968767
 1. [武林外传剧组时隔15年重聚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%C1%D6%CD%E2%B4%AB%BE%E7%D7%E9%CA%B1%B8%F415%C4%EA%D6%D8%BE%DB) 3829860
+1. [吴彦祖悬赏的凶手已找到 白宫回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%D1%E5%D7%E6%D0%FC%C9%CD%B5%C4%D0%D7%CA%D6%D2%D1%D5%D2%B5%BD%20%B0%D7%B9%AC%BB%D8%D3%A6) 3585028
 1. [12岁男孩独自做9菜1汤年夜饭](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=12%CB%EA%C4%D0%BA%A2%B6%C0%D7%D4%D7%F69%B2%CB1%CC%C0%C4%EA%D2%B9%B7%B9) 3566461
+1. [浙江浦江紧急寻找涉疫牛排接触人员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%E3%BD%AD%C6%D6%BD%AD%BD%F4%BC%B1%D1%B0%D5%D2%C9%E6%D2%DF%C5%A3%C5%C5%BD%D3%B4%A5%C8%CB%D4%B1) 3459552
 1. [美国疫苗接种陷种族不平等境况](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%DF%C3%E7%BD%D3%D6%D6%CF%DD%D6%D6%D7%E5%B2%BB%C6%BD%B5%C8%BE%B3%BF%F6) 3441635
+1. [周深的嗓子里住了几个人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%DC%C9%EE%B5%C4%C9%A4%D7%D3%C0%EF%D7%A1%C1%CB%BC%B8%B8%F6%C8%CB) 3338468
 1. [各地春晚看不停](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%F7%B5%D8%B4%BA%CD%ED%BF%B4%B2%BB%CD%A3) 3321178
 1. [春晚机甲牛夸王冰冰好漂亮](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%CD%ED%BB%FA%BC%D7%C5%A3%BF%E4%CD%F5%B1%F9%B1%F9%BA%C3%C6%AF%C1%C1) 3204937
 1. [中纪委关注春晚小品大扫除](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%CD%CE%AF%B9%D8%D7%A2%B4%BA%CD%ED%D0%A1%C6%B7%B4%F3%C9%A8%B3%FD) 3174070
