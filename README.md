@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-14 22:22:10
+最后更新时间 2021-02-14 23:21:48
 
 1. [日本福岛近海发生7.3级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B8%A3%B5%BA%BD%FC%BA%A3%B7%A2%C9%FA7.3%BC%B6%B5%D8%D5%F0) 4914025
 1. [日本东北地区7.1级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B6%AB%B1%B1%B5%D8%C7%F87.1%BC%B6%B5%D8%D5%F0) 4911794
@@ -33,6 +33,7 @@
 1. [陕西一村4000多人姓第五](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%C2%CE%F7%D2%BB%B4%E54000%B6%E0%C8%CB%D0%D5%B5%DA%CE%E5) 4406193
 1. [视频:日本地震 门窗剧烈摇晃](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%D3%C6%B5%3A%C8%D5%B1%BE%B5%D8%D5%F0%20%C3%C5%B4%B0%BE%E7%C1%D2%D2%A1%BB%CE) 4259409
 1. [日本震后景象:山体滑坡、道路塌陷](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%D5%F0%BA%F3%BE%B0%CF%F3%3A%C9%BD%CC%E5%BB%AC%C6%C2%A1%A2%B5%C0%C2%B7%CB%FA%CF%DD) 4252788
+1. [全国核酸检测费用最新汇总](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%BA%CB%CB%E1%BC%EC%B2%E2%B7%D1%D3%C3%D7%EE%D0%C2%BB%E3%D7%DC) 4138272
 1. [民警疯抢所长红包打开是值班表](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%BE%AF%B7%E8%C7%C0%CB%F9%B3%A4%BA%EC%B0%FC%B4%F2%BF%AA%CA%C7%D6%B5%B0%E0%B1%ED) 4112197
 1. [十大人均收入最高城市](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%B4%F3%C8%CB%BE%F9%CA%D5%C8%EB%D7%EE%B8%DF%B3%C7%CA%D0) 4110330
 1. [唐探3创国产片单周票房新纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%C6%CC%BD3%B4%B4%B9%FA%B2%FA%C6%AC%B5%A5%D6%DC%C6%B1%B7%BF%D0%C2%BC%CD%C2%BC) 4103940
@@ -50,6 +51,7 @@
 1. [单身男性比单身女性更喜欢做家务](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%A5%C9%ED%C4%D0%D0%D4%B1%C8%B5%A5%C9%ED%C5%AE%D0%D4%B8%FC%CF%B2%BB%B6%D7%F6%BC%D2%CE%F1) 3624484
 1. [多位世卫专家评纽约时报涉华报道](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%CE%BB%CA%C0%CE%C0%D7%A8%BC%D2%C6%C0%C5%A6%D4%BC%CA%B1%B1%A8%C9%E6%BB%AA%B1%A8%B5%C0) 3566015
 1. [岳云鹏一天看6场电影](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C0%D4%C6%C5%F4%D2%BB%CC%EC%BF%B46%B3%A1%B5%E7%D3%B0) 3564396
+1. [几内亚现5年来首批埃博拉死亡病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%B8%C4%DA%D1%C7%CF%D65%C4%EA%C0%B4%CA%D7%C5%FA%B0%A3%B2%A9%C0%AD%CB%C0%CD%F6%B2%A1%C0%FD) 3463025
 1. [全国高中风险区降至15个](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B8%DF%D6%D0%B7%E7%CF%D5%C7%F8%BD%B5%D6%C115%B8%F6) 3439642
 1. [中国最后一个原始部落翁丁发生火灾](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D7%EE%BA%F3%D2%BB%B8%F6%D4%AD%CA%BC%B2%BF%C2%E4%CE%CC%B6%A1%B7%A2%C9%FA%BB%F0%D4%D6) 3375210
 1. [11岁外甥给5岁舅舅拜年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=11%CB%EA%CD%E2%C9%FB%B8%F85%CB%EA%BE%CB%BE%CB%B0%DD%C4%EA) 3320762
@@ -57,6 +59,7 @@
 1. [全球7成新冠疫苗被富裕国家抢购](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%C7%F27%B3%C9%D0%C2%B9%DA%D2%DF%C3%E7%B1%BB%B8%BB%D4%A3%B9%FA%BC%D2%C7%C0%B9%BA) 3313462
 1. [澳网临时退票举行空场比赛](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%C4%CD%F8%C1%D9%CA%B1%CD%CB%C6%B1%BE%D9%D0%D0%BF%D5%B3%A1%B1%C8%C8%FC) 3203080
 1. [美参院否决针对特朗普的弹劾条款](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B2%CE%D4%BA%B7%F1%BE%F6%D5%EB%B6%D4%CC%D8%C0%CA%C6%D5%B5%C4%B5%AF%DB%C0%CC%F5%BF%EE) 3198101
+1. [天柱山连续两天出现日晕美景](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%D6%F9%C9%BD%C1%AC%D0%F8%C1%BD%CC%EC%B3%F6%CF%D6%C8%D5%D4%CE%C3%C0%BE%B0) 3111985
 1. [官方回应游乐场飞椅坠落](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%D3%CE%C0%D6%B3%A1%B7%C9%D2%CE%D7%B9%C2%E4) 3092377
 1. [设计师想给火星车起名叫哪吒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%E8%BC%C6%CA%A6%CF%EB%B8%F8%BB%F0%D0%C7%B3%B5%C6%F0%C3%FB%BD%D0%C4%C4%DF%B8) 2984144
 1. [河南汝州回应寒假有学校补课](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%C8%EA%D6%DD%BB%D8%D3%A6%BA%AE%BC%D9%D3%D0%D1%A7%D0%A3%B2%B9%BF%CE) 2982789
@@ -69,9 +72,11 @@
 1. [沙溢回应没参加武林外传重聚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%B3%D2%E7%BB%D8%D3%A6%C3%BB%B2%CE%BC%D3%CE%E4%C1%D6%CD%E2%B4%AB%D6%D8%BE%DB) 2777647
 1. [男孩磕头碎核桃向舅舅讨压岁钱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%BA%A2%BF%C4%CD%B7%CB%E9%BA%CB%CC%D2%CF%F2%BE%CB%BE%CB%CC%D6%D1%B9%CB%EA%C7%AE) 2773329
 1. [日本福岛附近发生里氏5.2级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B8%A3%B5%BA%B8%BD%BD%FC%B7%A2%C9%FA%C0%EF%CA%CF5.2%BC%B6%B5%D8%D5%F0) 2772800
+1. [你好李焕英票房破10亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%E3%BA%C3%C0%EE%BB%C0%D3%A2%C6%B1%B7%BF%C6%C610%D2%DA) 2698651
 1. [天问一号到达火星会开展哪些工作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%CE%CA%D2%BB%BA%C5%B5%BD%B4%EF%BB%F0%D0%C7%BB%E1%BF%AA%D5%B9%C4%C4%D0%A9%B9%A4%D7%F7) 2680430
 1. [詹姆斯假摔收到联盟警告](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%B2%C4%B7%CB%B9%BC%D9%CB%A4%CA%D5%B5%BD%C1%AA%C3%CB%BE%AF%B8%E6) 2676263
 1. [全球最大中国股票基金1月减持茅台](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%C7%F2%D7%EE%B4%F3%D6%D0%B9%FA%B9%C9%C6%B1%BB%F9%BD%F01%D4%C2%BC%F5%B3%D6%C3%A9%CC%A8) 2630220
+1. [李健把清华校训唱成歌](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%BD%A1%B0%D1%C7%E5%BB%AA%D0%A3%D1%B5%B3%AA%B3%C9%B8%E8) 2604199
 1. [《人潮汹涌》导演发声求排片](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B6%C8%CB%B3%B1%D0%DA%D3%BF%A1%B7%B5%BC%D1%DD%B7%A2%C9%F9%C7%F3%C5%C5%C6%AC) 2586615
 1. [北京今迎雨雪过程 城区能堆雪人吗?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%BD%F1%D3%AD%D3%EA%D1%A9%B9%FD%B3%CC%20%B3%C7%C7%F8%C4%DC%B6%D1%D1%A9%C8%CB%C2%F0%3F) 2575158
 1. [假期长时间看手机有完美的姿势吗?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D9%C6%DA%B3%A4%CA%B1%BC%E4%BF%B4%CA%D6%BB%FA%D3%D0%CD%EA%C3%C0%B5%C4%D7%CB%CA%C6%C2%F0%3F) 2546537
@@ -99,6 +104,7 @@
 1. [新物种以胡歌古天乐命名](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%CE%EF%D6%D6%D2%D4%BA%FA%B8%E8%B9%C5%CC%EC%C0%D6%C3%FC%C3%FB) 1942113
 1. [陕西一村上千人都姓醋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%C2%CE%F7%D2%BB%B4%E5%C9%CF%C7%A7%C8%CB%B6%BC%D0%D5%B4%D7) 1936522
 1. [全球新冠确诊病例连续4周下降](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%C7%F2%D0%C2%B9%DA%C8%B7%D5%EF%B2%A1%C0%FD%C1%AC%D0%F84%D6%DC%CF%C2%BD%B5) 1919839
+1. [德约科维奇大满贯300胜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%C2%D4%BC%BF%C6%CE%AC%C6%E6%B4%F3%C2%FA%B9%E1300%CA%A4) 1823674
 1. [美80名偷渡客被困油罐车痛苦求救](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C080%C3%FB%CD%B5%B6%C9%BF%CD%B1%BB%C0%A7%D3%CD%B9%DE%B3%B5%CD%B4%BF%E0%C7%F3%BE%C8) 1812430
 1. [刚贴好的春联被羊撕下来吃了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%D5%CC%F9%BA%C3%B5%C4%B4%BA%C1%AA%B1%BB%D1%F2%CB%BA%CF%C2%C0%B4%B3%D4%C1%CB) 1808544
 1. [美总统拜登携夫人拍视频贺新春](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D7%DC%CD%B3%B0%DD%B5%C7%D0%AF%B7%F2%C8%CB%C5%C4%CA%D3%C6%B5%BA%D8%D0%C2%B4%BA) 1792287
