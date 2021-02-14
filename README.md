@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-14 12:23:32
+最后更新时间 2021-02-14 13:20:24
 
 1. [日本东北地区7.1级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B6%AB%B1%B1%B5%D8%C7%F87.1%BC%B6%B5%D8%D5%F0) 4911794
 1. [日本福岛近海发生7.3级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B8%A3%B5%BA%BD%FC%BA%A3%B7%A2%C9%FA7.3%BC%B6%B5%D8%D5%F0) 4904158
@@ -28,9 +28,10 @@
 1. [日本震后景象:山体滑坡、道路塌陷](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%D5%F0%BA%F3%BE%B0%CF%F3%3A%C9%BD%CC%E5%BB%AC%C6%C2%A1%A2%B5%C0%C2%B7%CB%FA%CF%DD) 4252788
 1. [十大人均收入最高城市](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%B4%F3%C8%CB%BE%F9%CA%D5%C8%EB%D7%EE%B8%DF%B3%C7%CA%D0) 4110330
 1. [唐探3创国产片单周票房新纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%C6%CC%BD3%B4%B4%B9%FA%B2%FA%C6%AC%B5%A5%D6%DC%C6%B1%B7%BF%D0%C2%BC%CD%C2%BC) 4103940
-1. [健康过大年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%A1%BF%B5%B9%FD%B4%F3%C4%EA) 3973470
+1. [健康过大年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%A1%BF%B5%B9%FD%B4%F3%C4%EA) 4046643
 1. [牛年为何只有354天?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%C4%EA%CE%AA%BA%CE%D6%BB%D3%D0354%CC%EC%3F) 3966468
 1. [宅家嗑瓜子为啥停不下来?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%AC%BC%D2%E0%BE%B9%CF%D7%D3%CE%AA%C9%B6%CD%A3%B2%BB%CF%C2%C0%B4%3F) 3960302
+1. [春节档总票房破40亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B5%B5%D7%DC%C6%B1%B7%BF%C6%C640%D2%DA) 3905011
 1. [菅义伟称此次地震不会引发海啸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%DD%D1%D2%E5%CE%B0%B3%C6%B4%CB%B4%CE%B5%D8%D5%F0%B2%BB%BB%E1%D2%FD%B7%A2%BA%A3%D0%A5) 3821692
 1. [村庄400多人姓耍 有人叫"耍螃蟹"](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%E5%D7%AF400%B6%E0%C8%CB%D0%D5%CB%A3%20%D3%D0%C8%CB%BD%D0%22%CB%A3%F3%A6%D0%B7%22) 3693674
 1. [河南春晚总导演回应节目出圈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%B4%BA%CD%ED%D7%DC%B5%BC%D1%DD%BB%D8%D3%A6%BD%DA%C4%BF%B3%F6%C8%A6) 3677315
@@ -44,26 +45,32 @@
 1. [官方回应游乐场飞椅坠落](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%D3%CE%C0%D6%B3%A1%B7%C9%D2%CE%D7%B9%C2%E4) 3086168
 1. [河南汝州回应寒假有学校补课](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%C8%EA%D6%DD%BB%D8%D3%A6%BA%AE%BC%D9%D3%D0%D1%A7%D0%A3%B2%B9%BF%CE) 2982789
 1. [特斯拉将针对中国市场推出便宜车型](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%BD%AB%D5%EB%B6%D4%D6%D0%B9%FA%CA%D0%B3%A1%CD%C6%B3%F6%B1%E3%D2%CB%B3%B5%D0%CD) 2978152
+1. [设计师想给火星车起名叫哪吒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%E8%BC%C6%CA%A6%CF%EB%B8%F8%BB%F0%D0%C7%B3%B5%C6%F0%C3%FB%BD%D0%C4%C4%DF%B8) 2936573
 1. [特朗普家门口上空飘横幅](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%BC%D2%C3%C5%BF%DA%C9%CF%BF%D5%C6%AE%BA%E1%B7%F9) 2878391
 1. [外媒:白宫副发言人达克洛辞职](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%C3%BD%3A%B0%D7%B9%AC%B8%B1%B7%A2%D1%D4%C8%CB%B4%EF%BF%CB%C2%E5%B4%C7%D6%B0) 2873916
-1. [芬兰艺术家用数千脚印踩出雪花图案](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%D2%C0%BC%D2%D5%CA%F5%BC%D2%D3%C3%CA%FD%C7%A7%BD%C5%D3%A1%B2%C8%B3%F6%D1%A9%BB%A8%CD%BC%B0%B8) 2782550
+1. [芬兰艺术家用数千脚印踩出雪花图案](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%D2%C0%BC%D2%D5%CA%F5%BC%D2%D3%C3%CA%FD%C7%A7%BD%C5%D3%A1%B2%C8%B3%F6%D1%A9%BB%A8%CD%BC%B0%B8) 2833793
 1. [沙溢回应没参加武林外传重聚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%B3%D2%E7%BB%D8%D3%A6%C3%BB%B2%CE%BC%D3%CE%E4%C1%D6%CD%E2%B4%AB%D6%D8%BE%DB) 2777647
 1. [男孩磕头碎核桃向舅舅讨压岁钱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%BA%A2%BF%C4%CD%B7%CB%E9%BA%CB%CC%D2%CF%F2%BE%CB%BE%CB%CC%D6%D1%B9%CB%EA%C7%AE) 2773329
+1. [日本发生强震 留学生讲惊险时刻](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%B7%A2%C9%FA%C7%BF%D5%F0%20%C1%F4%D1%A7%C9%FA%BD%B2%BE%AA%CF%D5%CA%B1%BF%CC) 2734610
 1. [天问一号到达火星会开展哪些工作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%EC%CE%CA%D2%BB%BA%C5%B5%BD%B4%EF%BB%F0%D0%C7%BB%E1%BF%AA%D5%B9%C4%C4%D0%A9%B9%A4%D7%F7) 2680430
 1. [詹姆斯假摔收到联盟警告](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%B2%C4%B7%CB%B9%BC%D9%CB%A4%CA%D5%B5%BD%C1%AA%C3%CB%BE%AF%B8%E6) 2676263
 1. [《人潮汹涌》导演发声求排片](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B6%C8%CB%B3%B1%D0%DA%D3%BF%A1%B7%B5%BC%D1%DD%B7%A2%C9%F9%C7%F3%C5%C5%C6%AC) 2586615
 1. [北京今迎雨雪过程 城区能堆雪人吗?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%BD%F1%D3%AD%D3%EA%D1%A9%B9%FD%B3%CC%20%B3%C7%C7%F8%C4%DC%B6%D1%D1%A9%C8%CB%C2%F0%3F) 2575158
+1. [假期长时间看手机有完美的姿势吗?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D9%C6%DA%B3%A4%CA%B1%BC%E4%BF%B4%CA%D6%BB%FA%D3%D0%CD%EA%C3%C0%B5%C4%D7%CB%CA%C6%C2%F0%3F) 2546537
 1. [唐探3创下一项全球票房纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%C6%CC%BD3%B4%B4%CF%C2%D2%BB%CF%EE%C8%AB%C7%F2%C6%B1%B7%BF%BC%CD%C2%BC) 2496083
 1. [男子视频还原14年前拜年场景](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%CA%D3%C6%B5%BB%B9%D4%AD14%C4%EA%C7%B0%B0%DD%C4%EA%B3%A1%BE%B0) 2492203
-1. [学生因网名遭老师辱骂?官方介入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%A7%C9%FA%D2%F2%CD%F8%C3%FB%D4%E2%C0%CF%CA%A6%C8%E8%C2%EE%3F%B9%D9%B7%BD%BD%E9%C8%EB) 2412972
+1. [学生因网名遭老师辱骂?官方介入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%A7%C9%FA%D2%F2%CD%F8%C3%FB%D4%E2%C0%CF%CA%A6%C8%E8%C2%EE%3F%B9%D9%B7%BD%BD%E9%C8%EB) 2457408
 1. [官方回应公务车现身商场疑私用](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%B9%AB%CE%F1%B3%B5%CF%D6%C9%ED%C9%CC%B3%A1%D2%C9%CB%BD%D3%C3) 2404976
 1. [王宝强主演电影票房超150亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%B1%A6%C7%BF%D6%F7%D1%DD%B5%E7%D3%B0%C6%B1%B7%BF%B3%AC150%D2%DA) 2397645
-1. [民警疯抢所长红包打开是值班表](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%BE%AF%B7%E8%C7%C0%CB%F9%B3%A4%BA%EC%B0%FC%B4%F2%BF%AA%CA%C7%D6%B5%B0%E0%B1%ED) 2328518
+1. [民警疯抢所长红包打开是值班表](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%BE%AF%B7%E8%C7%C0%CB%F9%B3%A4%BA%EC%B0%FC%B4%F2%BF%AA%CA%C7%D6%B5%B0%E0%B1%ED) 2371399
 1. [上海北极熊过年吃到4斤重大饺子](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%B1%B1%BC%AB%D0%DC%B9%FD%C4%EA%B3%D4%B5%BD4%BD%EF%D6%D8%B4%F3%BD%C8%D7%D3) 2320802
+1. [亚洲最大花卉市场日销千万支玫瑰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%C7%D6%DE%D7%EE%B4%F3%BB%A8%BB%DC%CA%D0%B3%A1%C8%D5%CF%FA%C7%A7%CD%F2%D6%A7%C3%B5%B9%E5) 2288400
 1. [开卷迎新 袁隆平樊锦诗等谈读书](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%AA%BE%ED%D3%AD%D0%C2%20%D4%AC%C2%A1%C6%BD%B7%AE%BD%F5%CA%AB%B5%C8%CC%B8%B6%C1%CA%E9) 2247020
 1. [海航原股东股权将清零](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%BA%BD%D4%AD%B9%C9%B6%AB%B9%C9%C8%A8%BD%AB%C7%E5%C1%E3) 2237553
+1. [中国冰雪健儿发来新春祝福](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%B1%F9%D1%A9%BD%A1%B6%F9%B7%A2%C0%B4%D0%C2%B4%BA%D7%A3%B8%A3) 2208306
 1. [大唐不夜城人流过大演出全部取消](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%CC%C6%B2%BB%D2%B9%B3%C7%C8%CB%C1%F7%B9%FD%B4%F3%D1%DD%B3%F6%C8%AB%B2%BF%C8%A1%CF%FB) 2159239
 1. [山东人拜年的仪式感](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%C8%CB%B0%DD%C4%EA%B5%C4%D2%C7%CA%BD%B8%D0) 2136402
+1. [张桂梅陪孩子们度过第20个春节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B9%F0%C3%B7%C5%E3%BA%A2%D7%D3%C3%C7%B6%C8%B9%FD%B5%DA20%B8%F6%B4%BA%BD%DA) 2131015
 1. [男子摆摊卖烤鱿鱼资助贫困学生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%B0%DA%CC%AF%C2%F4%BF%BE%F6%CF%D3%E3%D7%CA%D6%FA%C6%B6%C0%A7%D1%A7%C9%FA) 2108144
 1. [牛为什么在12生肖里排第2位](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%A3%CE%AA%CA%B2%C3%B4%D4%DA12%C9%FA%D0%A4%C0%EF%C5%C5%B5%DA2%CE%BB) 2061628
 1. [中纪委关注春晚小品大扫除](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%BC%CD%CE%AF%B9%D8%D7%A2%B4%BA%CD%ED%D0%A1%C6%B7%B4%F3%C9%A8%B3%FD) 1989471
