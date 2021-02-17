@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-18 02:18:09
+最后更新时间 2021-02-18 03:19:49
 
 1. [拜登吐槽:我厌倦了谈论特朗普](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%CD%C2%B2%DB%3A%CE%D2%D1%E1%BE%EB%C1%CB%CC%B8%C2%DB%CC%D8%C0%CA%C6%D5) 4825042
 1. [美军舰17日擅闯南沙群岛](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%BE%FC%BD%A217%C8%D5%C9%C3%B4%B3%C4%CF%C9%B3%C8%BA%B5%BA) 4656165
@@ -41,7 +41,7 @@
 1. [春节档总票房破75亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B5%B5%D7%DC%C6%B1%B7%BF%C6%C675%D2%DA) 2163572
 1. [女孩景区喂猴被扯掉假发](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%BA%A2%BE%B0%C7%F8%CE%B9%BA%EF%B1%BB%B3%B6%B5%F4%BC%D9%B7%A2) 2126323
 1. [小哥爬400级楼梯深山送外卖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%B8%E7%C5%C0400%BC%B6%C2%A5%CC%DD%C9%EE%C9%BD%CB%CD%CD%E2%C2%F4) 2051902
-1. [男子放炮误扔打火机拿炮捂耳朵](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%B7%C5%C5%DA%CE%F3%C8%D3%B4%F2%BB%F0%BB%FA%C4%C3%C5%DA%CE%E6%B6%FA%B6%E4) 2023288
+1. [男子放炮误扔打火机拿炮捂耳朵](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%B7%C5%C5%DA%CE%F3%C8%D3%B4%F2%BB%F0%BB%FA%C4%C3%C5%DA%CE%E6%B6%FA%B6%E4) 2050222
 1. [火箭军玩贪吃蛇送牛年祝福](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F0%BC%FD%BE%FC%CD%E6%CC%B0%B3%D4%C9%DF%CB%CD%C5%A3%C4%EA%D7%A3%B8%A3) 1980085
 1. [丰田汽车宣布半数生产线停产](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%E1%CC%EF%C6%FB%B3%B5%D0%FB%B2%BC%B0%EB%CA%FD%C9%FA%B2%FA%CF%DF%CD%A3%B2%FA) 1910782
 1. [特朗普要求罢免参议院共和党领袖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%D2%AA%C7%F3%B0%D5%C3%E2%B2%CE%D2%E9%D4%BA%B9%B2%BA%CD%B5%B3%C1%EC%D0%E4) 1843905
