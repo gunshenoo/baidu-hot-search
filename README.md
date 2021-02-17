@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-17 12:29:16
+最后更新时间 2021-02-17 13:25:59
 
 1. [31省区市新增7例 均为境外输入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F67%C0%FD%20%BE%F9%CE%AA%BE%B3%CD%E2%CA%E4%C8%EB) 4892583
 1. [2021春节档票房刷新多项纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2021%B4%BA%BD%DA%B5%B5%C6%B1%B7%BF%CB%A2%D0%C2%B6%E0%CF%EE%BC%CD%C2%BC) 4871932
@@ -39,10 +39,12 @@
 1. [金正恩夫人时隔1年再次公开露面](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F0%D5%FD%B6%F7%B7%F2%C8%CB%CA%B1%B8%F41%C4%EA%D4%D9%B4%CE%B9%AB%BF%AA%C2%B6%C3%E6) 3812671
 1. ["春晚红"口罩火了 同款月销上万件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%22%B4%BA%CD%ED%BA%EC%22%BF%DA%D5%D6%BB%F0%C1%CB%20%CD%AC%BF%EE%D4%C2%CF%FA%C9%CF%CD%F2%BC%FE) 3796579
 1. [海南一冲锋舟水库侧翻致5人遇难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%D2%BB%B3%E5%B7%E6%D6%DB%CB%AE%BF%E2%B2%E0%B7%AD%D6%C25%C8%CB%D3%F6%C4%D1) 3679228
+1. [民法典解答孩子红包能否自己保管](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%B7%A8%B5%E4%BD%E2%B4%F0%BA%A2%D7%D3%BA%EC%B0%FC%C4%DC%B7%F1%D7%D4%BC%BA%B1%A3%B9%DC) 3632994
 1. [网红医生用麻醉药捂晕自己后道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F8%BA%EC%D2%BD%C9%FA%D3%C3%C2%E9%D7%ED%D2%A9%CE%E6%D4%CE%D7%D4%BC%BA%BA%F3%B5%C0%C7%B8) 3550455
 1. [3000年前方便面长啥样](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3000%C4%EA%C7%B0%B7%BD%B1%E3%C3%E6%B3%A4%C9%B6%D1%F9) 3535469
 1. [张小斐谈背贾玲好温柔](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%D0%A1%EC%B3%CC%B8%B1%B3%BC%D6%C1%E1%BA%C3%CE%C2%C8%E1) 3426189
 1. [10个特大城市房价皆过万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=10%B8%F6%CC%D8%B4%F3%B3%C7%CA%D0%B7%BF%BC%DB%BD%D4%B9%FD%CD%F2) 3411728
+1. [山东一金矿火灾 2人死亡4人失联](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%D2%BB%BD%F0%BF%F3%BB%F0%D4%D6%202%C8%CB%CB%C0%CD%F64%C8%CB%CA%A7%C1%AA) 3383135
 1. [12岁女孩走路玩手机坠入枯井](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=12%CB%EA%C5%AE%BA%A2%D7%DF%C2%B7%CD%E6%CA%D6%BB%FA%D7%B9%C8%EB%BF%DD%BE%AE) 3306272
 1. [援鄂护士在春晚看见自己](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%AE%B6%F5%BB%A4%CA%BF%D4%DA%B4%BA%CD%ED%BF%B4%BC%FB%D7%D4%BC%BA) 3303668
 1. [贾玲成中国影史票房最高女导演](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D6%C1%E1%B3%C9%D6%D0%B9%FA%D3%B0%CA%B7%C6%B1%B7%BF%D7%EE%B8%DF%C5%AE%B5%BC%D1%DD) 3261745
@@ -51,12 +53,14 @@
 1. [女婿见到老丈人泪奔 媳妇:没欺负他](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D0%F6%BC%FB%B5%BD%C0%CF%D5%C9%C8%CB%C0%E1%B1%BC%20%CF%B1%B8%BE%3A%C3%BB%C6%DB%B8%BA%CB%FB) 3147584
 1. [韩教授要求改中国诗人国籍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%BD%CC%CA%DA%D2%AA%C7%F3%B8%C4%D6%D0%B9%FA%CA%AB%C8%CB%B9%FA%BC%AE) 3078883
 1. [春节假期城市周边游火热](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%BC%D9%C6%DA%B3%C7%CA%D0%D6%DC%B1%DF%D3%CE%BB%F0%C8%C8) 3065888
+1. [江西上饶致1死3伤命案嫌犯被控制](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%AD%CE%F7%C9%CF%C8%C4%D6%C21%CB%C03%C9%CB%C3%FC%B0%B8%CF%D3%B7%B8%B1%BB%BF%D8%D6%C6) 3040194
 1. [大年初五迎财神](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%C4%EA%B3%F5%CE%E5%D3%AD%B2%C6%C9%F1) 3037419
 1. [最高检:4种劝酒出事要负法律责任](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%EE%B8%DF%BC%EC%3A4%D6%D6%C8%B0%BE%C6%B3%F6%CA%C2%D2%AA%B8%BA%B7%A8%C2%C9%D4%F0%C8%CE) 2971123
 1. [德国一冰激凌工厂暴发聚集性感染](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%C2%B9%FA%D2%BB%B1%F9%BC%A4%C1%E8%B9%A4%B3%A7%B1%A9%B7%A2%BE%DB%BC%AF%D0%D4%B8%D0%C8%BE) 2968783
 1. [贝克汉姆夫妇给科比女儿送花](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B4%BF%CB%BA%BA%C4%B7%B7%F2%B8%BE%B8%F8%BF%C6%B1%C8%C5%AE%B6%F9%CB%CD%BB%A8) 2931109
 1. [王冰冰汉服造型](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%B1%F9%B1%F9%BA%BA%B7%FE%D4%EC%D0%CD) 2867133
 1. [韩女星刘荷娜躺在公公腿上](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%C5%AE%D0%C7%C1%F5%BA%C9%C4%C8%CC%C9%D4%DA%B9%AB%B9%AB%CD%C8%C9%CF) 2855032
+1. [急救医生连续17年救护车上过年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%B1%BE%C8%D2%BD%C9%FA%C1%AC%D0%F817%C4%EA%BE%C8%BB%A4%B3%B5%C9%CF%B9%FD%C4%EA) 2831104
 1. [大白鹅听主人说要杀它被气吐血](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%B0%D7%B6%EC%CC%FD%D6%F7%C8%CB%CB%B5%D2%AA%C9%B1%CB%FC%B1%BB%C6%F8%CD%C2%D1%AA) 2766784
 1. [姐姐被叫阿姨堂弟热心纠正](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%E3%BD%E3%B1%BB%BD%D0%B0%A2%D2%CC%CC%C3%B5%DC%C8%C8%D0%C4%BE%C0%D5%FD) 2764605
 1. [英国发现另一种变异新冠病毒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A2%B9%FA%B7%A2%CF%D6%C1%ED%D2%BB%D6%D6%B1%E4%D2%EC%D0%C2%B9%DA%B2%A1%B6%BE) 2669946
@@ -72,6 +76,7 @@
 1. [东京奥组委物色新主席](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AB%BE%A9%B0%C2%D7%E9%CE%AF%CE%EF%C9%AB%D0%C2%D6%F7%CF%AF) 2399299
 1. [深圳券协副会长回应被女下属举报](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%C8%AF%D0%AD%B8%B1%BB%E1%B3%A4%BB%D8%D3%A6%B1%BB%C5%AE%CF%C2%CA%F4%BE%D9%B1%A8) 2397410
 1. [景区回应"包大人"路上指挥交通](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%B0%C7%F8%BB%D8%D3%A6%22%B0%FC%B4%F3%C8%CB%22%C2%B7%C9%CF%D6%B8%BB%D3%BD%BB%CD%A8) 2315324
+1. [你好李焕英票房突破24亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%E3%BA%C3%C0%EE%BB%C0%D3%A2%C6%B1%B7%BF%CD%BB%C6%C624%D2%DA) 2286229
 1. [初五返城方向、景区周边车流集中](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%F5%CE%E5%B7%B5%B3%C7%B7%BD%CF%F2%A1%A2%BE%B0%C7%F8%D6%DC%B1%DF%B3%B5%C1%F7%BC%AF%D6%D0) 2284142
 1. [春节假期前5日中国快递3.65亿件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%BC%D9%C6%DA%C7%B05%C8%D5%D6%D0%B9%FA%BF%EC%B5%DD3.65%D2%DA%BC%FE) 2224857
 1. [影院经理回应春节档票价偏高](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%B0%D4%BA%BE%AD%C0%ED%BB%D8%D3%A6%B4%BA%BD%DA%B5%B5%C6%B1%BC%DB%C6%AB%B8%DF) 2198348
@@ -80,6 +85,7 @@
 1. [塞尔维亚总统向中国专家授勋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%FB%B6%FB%CE%AC%D1%C7%D7%DC%CD%B3%CF%F2%D6%D0%B9%FA%D7%A8%BC%D2%CA%DA%D1%AB) 2047157
 1. [比特币突破50000美元创历史新高](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%CC%D8%B1%D2%CD%BB%C6%C650000%C3%C0%D4%AA%B4%B4%C0%FA%CA%B7%D0%C2%B8%DF) 2032552
 1. [吴京说票房高不意味着自己水平就高](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%BE%A9%CB%B5%C6%B1%B7%BF%B8%DF%B2%BB%D2%E2%CE%B6%D7%C5%D7%D4%BC%BA%CB%AE%C6%BD%BE%CD%B8%DF) 1980762
+1. [50岁男子翻跟头给岳母磕头拜年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=50%CB%EA%C4%D0%D7%D3%B7%AD%B8%FA%CD%B7%B8%F8%D4%C0%C4%B8%BF%C4%CD%B7%B0%DD%C4%EA) 1913182
 1. [美国已发现7种新冠病毒变异株](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%D1%B7%A2%CF%D67%D6%D6%D0%C2%B9%DA%B2%A1%B6%BE%B1%E4%D2%EC%D6%EA) 1911436
 1. [特朗普被判无罪后首次露面](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B1%BB%C5%D0%CE%DE%D7%EF%BA%F3%CA%D7%B4%CE%C2%B6%C3%E6) 1906364
 1. [山东禹城一蛋糕店起火致7人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%D3%ED%B3%C7%D2%BB%B5%B0%B8%E2%B5%EA%C6%F0%BB%F0%D6%C27%C8%CB%CB%C0%CD%F6) 1844535
