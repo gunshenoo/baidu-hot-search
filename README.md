@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-02-18 12:23:36
+最后更新时间 2021-02-18 13:19:24
 
 1. [全国高风险区清零](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B8%DF%B7%E7%CF%D5%C7%F8%C7%E5%C1%E3) 4921116
 1. [拜登吐槽:我厌倦了谈论特朗普](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%CD%C2%B2%DB%3A%CE%D2%D1%E1%BE%EB%C1%CB%CC%B8%C2%DB%CC%D8%C0%CA%C6%D5) 4908255
@@ -58,21 +58,21 @@
 1. [优衣库母公司成全球最大服装公司](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%C5%D2%C2%BF%E2%C4%B8%B9%AB%CB%BE%B3%C9%C8%AB%C7%F2%D7%EE%B4%F3%B7%FE%D7%B0%B9%AB%CB%BE) 2678499
 1. [女孩景区喂猴被扯掉假发](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%BA%A2%BE%B0%C7%F8%CE%B9%BA%EF%B1%BB%B3%B6%B5%F4%BC%D9%B7%A2) 2591524
 1. [四川女子玩高空项目挂半空被吓晕](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%C4%B4%A8%C5%AE%D7%D3%CD%E6%B8%DF%BF%D5%CF%EE%C4%BF%B9%D2%B0%EB%BF%D5%B1%BB%CF%C5%D4%CE) 2589233
-1. [海南离岛免税店4天销售超7亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B0%B5%EA4%CC%EC%CF%FA%CA%DB%B3%AC7%D2%DA%D4%AA) 2498609
+1. [海南离岛免税店4天销售超7亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B0%B5%EA4%CC%EC%CF%FA%CA%DB%B3%AC7%D2%DA%D4%AA) 2517299
 1. [英亚马逊近4千员工被误告核酸阳性](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A2%D1%C7%C2%ED%D1%B7%BD%FC4%C7%A7%D4%B1%B9%A4%B1%BB%CE%F3%B8%E6%BA%CB%CB%E1%D1%F4%D0%D4) 2494285
 1. [黑龙江一男子杀害7人后持枪在逃](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%D2%BB%C4%D0%D7%D3%C9%B1%BA%A67%C8%CB%BA%F3%B3%D6%C7%B9%D4%DA%CC%D3) 2406985
 1. [春节档总票房破75亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%BA%BD%DA%B5%B5%D7%DC%C6%B1%B7%BF%C6%C675%D2%DA) 2163572
+1. [科学家提取165万年前猛犸象DNA](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%C6%D1%A7%BC%D2%CC%E1%C8%A1165%CD%F2%C4%EA%C7%B0%C3%CD%E1%EF%CF%F3DNA) 2106548
 1. [男子放炮误扔打火机拿炮捂耳朵](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%B7%C5%C5%DA%CE%F3%C8%D3%B4%F2%BB%F0%BB%FA%C4%C3%C5%DA%CE%E6%B6%FA%B6%E4) 2090908
 1. [王冰冰汉服造型](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%B1%F9%B1%F9%BA%BA%B7%FE%D4%EC%D0%CD) 2087289
-1. [科学家提取165万年前猛犸象DNA](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%C6%D1%A7%BC%D2%CC%E1%C8%A1165%CD%F2%C4%EA%C7%B0%C3%CD%E1%EF%CF%F3DNA) 2080180
 1. [小哥爬400级楼梯深山送外卖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%B8%E7%C5%C0400%BC%B6%C2%A5%CC%DD%C9%EE%C9%BD%CB%CD%CD%E2%C2%F4) 2051902
+1. [正月初八将现双星拱月](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%FD%D4%C2%B3%F5%B0%CB%BD%AB%CF%D6%CB%AB%D0%C7%B9%B0%D4%C2) 2032819
 1. [援鄂护士在春晚看见自己](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%AE%B6%F5%BB%A4%CA%BF%D4%DA%B4%BA%CD%ED%BF%B4%BC%FB%D7%D4%BC%BA) 2017726
-1. [正月初八将现双星拱月](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%FD%D4%C2%B3%F5%B0%CB%BD%AB%CF%D6%CB%AB%D0%C7%B9%B0%D4%C2) 2007373
 1. [火箭军玩贪吃蛇送牛年祝福](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F0%BC%FD%BE%FC%CD%E6%CC%B0%B3%D4%C9%DF%CB%CD%C5%A3%C4%EA%D7%A3%B8%A3) 1980085
 1. [民法典解答孩子红包能否自己保管](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%B7%A8%B5%E4%BD%E2%B4%F0%BA%A2%D7%D3%BA%EC%B0%FC%C4%DC%B7%F1%D7%D4%BC%BA%B1%A3%B9%DC) 1947106
 1. [丰田汽车宣布半数生产线停产](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%E1%CC%EF%C6%FB%B3%B5%D0%FB%B2%BC%B0%EB%CA%FD%C9%FA%B2%FA%CF%DF%CD%A3%B2%FA) 1910782
+1. [你好李焕英取景地成网红打卡地](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%E3%BA%C3%C0%EE%BB%C0%D3%A2%C8%A1%BE%B0%B5%D8%B3%C9%CD%F8%BA%EC%B4%F2%BF%A8%B5%D8) 1893012
 1. [急救医生连续17年救护车上过年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%B1%BE%C8%D2%BD%C9%FA%C1%AC%D0%F817%C4%EA%BE%C8%BB%A4%B3%B5%C9%CF%B9%FD%C4%EA) 1878957
-1. [你好李焕英取景地成网红打卡地](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%E3%BA%C3%C0%EE%BB%C0%D3%A2%C8%A1%BE%B0%B5%D8%B3%C9%CD%F8%BA%EC%B4%F2%BF%A8%B5%D8) 1869316
 1. [特朗普要求罢免参议院共和党领袖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%D2%AA%C7%F3%B0%D5%C3%E2%B2%CE%D2%E9%D4%BA%B9%B2%BA%CD%B5%B3%C1%EC%D0%E4) 1843905
 1. [德国一冰激凌工厂暴发聚集性感染](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%C2%B9%FA%D2%BB%B1%F9%BC%A4%C1%E8%B9%A4%B3%A7%B1%A9%B7%A2%BE%DB%BC%AF%D0%D4%B8%D0%C8%BE) 1839460
 1. [英国发现另一种变异新冠病毒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A2%B9%FA%B7%A2%CF%D6%C1%ED%D2%BB%D6%D6%B1%E4%D2%EC%D0%C2%B9%DA%B2%A1%B6%BE) 1775079
