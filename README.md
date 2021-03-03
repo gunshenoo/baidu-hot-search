@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-03-04 06:21:53
+最后更新时间 2021-03-04 07:20:59
 
 1. [货拉拉司机被批捕 警方通报细节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F5%C0%AD%C0%AD%CB%BE%BB%FA%B1%BB%C5%FA%B2%B6%20%BE%AF%B7%BD%CD%A8%B1%A8%CF%B8%BD%DA) 4919849
 1. [政协发言人回应中国疫苗安全质疑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%FE%D0%AD%B7%A2%D1%D4%C8%CB%BB%D8%D3%A6%D6%D0%B9%FA%D2%DF%C3%E7%B0%B2%C8%AB%D6%CA%D2%C9) 4581487
@@ -48,6 +48,7 @@
 1. [人大代表建议抑郁症纳入医保](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%CB%B4%F3%B4%FA%B1%ED%BD%A8%D2%E9%D2%D6%D3%F4%D6%A2%C4%C9%C8%EB%D2%BD%B1%A3) 1820830
 1. [泰女子用中国疫苗箱编号买彩票中奖](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A9%C5%AE%D7%D3%D3%C3%D6%D0%B9%FA%D2%DF%C3%E7%CF%E4%B1%E0%BA%C5%C2%F2%B2%CA%C6%B1%D6%D0%BD%B1) 1757101
 1. [小伙打两份工站着睡着摔倒受伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%A1%BB%EF%B4%F2%C1%BD%B7%DD%B9%A4%D5%BE%D7%C5%CB%AF%D7%C5%CB%A4%B5%B9%CA%DC%C9%CB) 1696681
+1. [代表建议公共场所室内全面禁烟](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%FA%B1%ED%BD%A8%D2%E9%B9%AB%B9%B2%B3%A1%CB%F9%CA%D2%C4%DA%C8%AB%C3%E6%BD%FB%D1%CC) 1694418
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
